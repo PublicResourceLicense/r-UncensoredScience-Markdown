@@ -1,5 +1,5 @@
 A Perfect Song to End the World of Religious Ideology that Remembers the Billions That Lost Their Lives as the Church Never Allowed Them to Live in a Multitude of Ways.  
-  ------  
+------
 https://www.youtube.com/watch?v=Lunna3ApmqE  
 /r/UncensoredScience  
 /u/Alehti  
@@ -8,15 +8,15 @@ https://www.youtube.com/watch?v=Lunna3ApmqE
    
 WWII America vs. Nationalists | Star Wars | A Terrorist Group Introduced such stigma on Conspiracy Theories that you refuse to listen while disregarding the fact that you're unknowingly aiding enemy conspirators to commit treason against the U.S. | I can't teach you 1000s of hrs of study in a post.   
 
-  ------  
+------
 https://youtube.com/watch?v=1O-NwCbr-ic  
 /r/UncensoredScience  
 /u/Alehti  
 8/12/2022, 5:43:32 PM  
   
    
-Lmao. So. I post about Censorship of Open Source on a Richard Stallman Sub; and then on a post of mine where I warn others that Groomer is an Anti-Semitic Term that MOD Calls me a Nazi. Oh. How. Catholic.   
-  ------  
+I post about Censorship of Open Source on a Richard Stallman Sub; and then on a post of mine where I warn others that Groomer is an Anti-Semitic Term that MOD Calls me a Nazi. Oh. How. Catholic.   
+------
 ![](https://i.redd.it/uayjh6612dh91.png?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
@@ -24,7 +24,7 @@ Lmao. So. I post about Censorship of Open Source on a Richard Stallman Sub; and 
   
    
 That's what they all SAY and then delete the post and lock the replies. They really think the people are idiots. You don't think there are White Supremacists in the Military?   
-  ------   
+------ 
 ![](https://i.redd.it/fpxkloznqch91.png?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
@@ -32,8 +32,8 @@ That's what they all SAY and then delete the post and lock the replies. They rea
   
    
 A List of All My Medium Articles   
-  ------  
-Just remember to open link as a private tab, or you can support my work by subscribing to it.  
+------
+Just remember to open link as a private tab, or you can support my work by subscribing to it with the /@andylehti/membership url.
   
 This is work I have done in my spare time between this investigation:  
   
@@ -186,7 +186,7 @@ Edit: the markdown is all screwed up, so here are just the posts for now
   
    
 WELCOME: You know what irritates me the most? On every subreddit they pretend to be ATHEIST, BIPOLAR, SATANISTS, CHRISTIAN, JEWISH, ALL except CATHOLIC so that we fight each other. They have done this for centuries. You don't realize that until you fight back, you will be stomped down forever.   
-  ------  
+------
 **SHOULD YOU NEED FURTHER EXPLANATION: click the History Tag.**  
   
 There are many that have been printing and curating the material and distributing it.  
@@ -252,7 +252,7 @@ Please. Cross post this. Do your part. Your grandparents stormed the beaches of 
   
    
 Remaking this one. Too short to grasp the entire base our system today. Caesar wanted Gods, and burnt down the Library of Alexandria; the Roman Senate, did not; they murdered him. No one cared. ROME "TAXED" (see comment) via offerings; since Grks/Hbrws had the offerings: Rome raised tax: fell   
-  ------  
+------
 ![](https://i.redd.it/cde45yxhfbh91.png?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
@@ -260,7 +260,7 @@ Remaking this one. Too short to grasp the entire base our system today. Caesar w
   
    
 I don't, but you do what you want. None of my f--king business. 🇺🇲   
-  ------  
+------
 https://v.redd.it/abdwo25r3bh91  
 /r/UncensoredScience  
 /u/Alehti  
@@ -268,7 +268,7 @@ https://v.redd.it/abdwo25r3bh91
   
    
 And for those times when I come across something marginally microscopic or subjectively large in error. | They downvoted all twice except this one, and the Star Wars one in my community of zero people and zero impressions lol. Can't be keyword based. The other one has them.   
-  ------  
+------
 https://v.redd.it/v3fju1bfjah91  
 /r/UncensoredScience  
 /u/Alehti  
@@ -276,7 +276,7 @@ https://v.redd.it/v3fju1bfjah91
   
    
 They've socially conditioned you to disregard anything that may be "too long didn't read," and then trained you to do it so that OP has to gut out half of the important info to which then their same users come back to tear apart what you ommitted. This is under explained.   
-  ------  
+------
 https://www.reddit.com/gallery/wmj5be  
 /r/UncensoredScience  
 /u/Alehti  
@@ -284,7 +284,7 @@ https://www.reddit.com/gallery/wmj5be
   
    
 THE TRUE ORIGIN OF THE CATHOLIC CHURCH: The Fall of the Western Roman Empire (313 C.E. / A.D.) and (~300 C.E. / A.D.) over 300 years resulting in their push to destroy free thought, atheism, and their opponents presented within 1:20 minute.   
-  ------  
+------
 https://v.redd.it/79yzodv3f9h91  
 /r/UncensoredScience  
 /u/Alehti  
@@ -292,7 +292,7 @@ https://v.redd.it/79yzodv3f9h91
   
    
 I never thought about the Color Scheme of Cardinals, Inquisitors, Crusaders, and Nazis: How Are You Going to Sit There and Say No Affiliation When You Color Coordinated? Plus All of Them Used the Iron Cross | EXTRA: How George Lucas Warned You of Catholic Predators.   
-  ------  
+------
 &#x200B;  
   
 ![](https://preview.redd.it/hrl17zepl7h91.png?width=615&format=png&auto=webp&s=d97e857f3ebd6979f78b83e158eac49428a1f044?raw=true)
@@ -386,7 +386,7 @@ Tell me that this is not exactly what has been going on:
   
    
 A Nice Bit of Additional Evidence thanks to a Redditor No Longer Active   
-  ------  
+------
 &#x200B;  
   
 ![](https://preview.redd.it/25k1pe90f7h91.png?width=703&format=png&auto=webp&s=dfeb65236651e0a9afb87784a90e9de1fcbcdb20?raw=true)
@@ -404,7 +404,7 @@ Hmm this is no longer available.
   
    
 I've given you the pieces, put them together. Last genocide 1994. Spanish Inquisition, Confederates, KKK, Nazi Party, Suggesters to Import Nazis, Congress Blocked USA from Entering WWII, JWB, LHO, Philistines, Palestines, Crusades, Angers Two Sides to Attack. Catholic Census = White &amp; Other Colored.   
-  ------  
+------
 ![](https://i.redd.it/pmfg70wea7h91.png?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
@@ -412,7 +412,7 @@ I've given you the pieces, put them together. Last genocide 1994. Spanish Inquis
   
    
 Should I Need Just One Piece of Evidence Against the Catholics | ANY time that they FAIL to defeat the upvotes and it starts climbing in the opposite direction toward positive, then they REMOVE it. TWO THOUSAND CENSORED POSTS IS NOT a coincidence. It is an attack on the United States.   
-  ------  
+------
 https://www.bnd.bund.de/DE/Service/Kontakt/hauptkontakt_node.html  
 /r/UncensoredScience  
 /u/Alehti  
@@ -420,7 +420,7 @@ https://www.bnd.bund.de/DE/Service/Kontakt/hauptkontakt_node.html
   
    
 Just to make this clear. Terrorist/Nazi Supporters WILL be outed as that is our right to do so and if any Reddit Admin desires to commit treason against the United States on behalf of Reddit. They may do so. You have that freedom; but not freedom of consequence. This is mental warfare; it's illegal.   
-  ------  
+------
 ![](https://i.redd.it/hy80qhbj57h91.png?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
@@ -428,7 +428,7 @@ Just to make this clear. Terrorist/Nazi Supporters WILL be outed as that is our 
   
    
 Here is what is going to HAPPEN from now on anytime ANYONE censors and obstructs justice of the terrorists ruining Society, Reddit, Facebook, Twitter, YouTube, Economy, etc. | Public Comment: This Mod from QuitYourBullShit Commented. ALL SOCIALMEDIA TOS Policies Allow you to use their posts VERBATIM   
-  ------  
+------
 ![](https://i.redd.it/sgj4qtto17h91.png?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
@@ -436,7 +436,7 @@ Here is what is going to HAPPEN from now on anytime ANYONE censors and obstructs
   
    
 Disproved their god. Proved from 10,000 hours of prior study that accidentally coincided and an additional 3800 hours of study/investigation to determine that the Catholics have been almost every evil this world has ever seen and that their ONLY DEFENSE is to cry misinformation, even on opinions.   
-  ------  
+------
 &#x200B;  
   
 ![](https://preview.redd.it/3piz0etop6h91.png?width=498&format=png&auto=webp&s=e803334376fc13cb8be3f165006a74fa50013bc6?raw=true)
@@ -446,7 +446,7 @@ Disproved their god. Proved from 10,000 hours of prior study that accidentally c
   
    
 Oh? Open Source is evil? Unity is evil? All humans getting the vote of the executive branch to prevent dictatorships, fruads, and bribes is evil? Public voting is evil because they demand privacy to cheat the system? Fuck that.   
-  ------  
+------
 https://i.imgur.com/LChebPl.jpg  
 /r/UncensoredScience  
 /u/Alehti  
@@ -454,7 +454,7 @@ https://i.imgur.com/LChebPl.jpg
   
    
 Thank Zeus Screenshots Exists.   
-  ------  
+------
 https://i.imgur.com/cw22uNS.jpg  
 /r/UncensoredScience  
 /u/Alehti  
@@ -462,7 +462,7 @@ https://i.imgur.com/cw22uNS.jpg
   
    
 Never has been so easy to veer through the banthashit to see Palpatine's strings on Both Sides. The division between people and the stubbornness they've installed in both a sides not to find an inch of credibility to the other side.   
-  ------  
+------
 https://i.redd.it/6cmv9p8w36h91.jpg  
 /r/UncensoredScience  
 /u/Alehti  
@@ -470,7 +470,7 @@ https://i.redd.it/6cmv9p8w36h91.jpg
   
    
 ⚠ |=|_|/ ....♞__ Stop reading if you do NOT want to know the truth about your god ⚠ | The Ultimate Proof That God Does Not Exist | Does God Exist? Unequivocally, No. Absolutely Not. You're Worshipping the Sky Because Our Ancestors Were Scared of Lightning. I just want to tell y.....   
-  ------  
+------
 &#x200B;  
   
 ![](https://preview.redd.it/j0myriu6e4h91.png?width=767&format=png&auto=webp&s=9a4fdaf3c6dc620cfca380cd1de4f970c749e2c9?raw=true)
@@ -672,7 +672,7 @@ Sources, what might happen after death, and further information on how the Catho
   
    
 Prependix D: 42 POSTS AUGUST 11TH   
-  ------  
+------
 &#x200B;  
   
 *Processing img 0377skuet2h91...*  
@@ -786,7 +786,7 @@ The Pope when he finds out: The Pope, to the Archbishop, to the Bishop:
   
    
 I Quit Composing Music When Someone Said my Music Reminded Them of Danny Elfman | Just an example of why you should not listen to the NPCs. I also should not have been offended by that. If this has a paywall for you, just open in a new private tab. You're welcome.   
-  ------  
+------
 https://medium.com/gitresearch/i-quit-composing-music-when-someone-said-my-music-reminded-them-of-danny-elfman-ceae1dd43119  
 /r/UncensoredScience  
 /u/Alehti  
@@ -794,7 +794,7 @@ https://medium.com/gitresearch/i-quit-composing-music-when-someone-said-my-music
   
    
 Any that try to defend Nazi/Catholic propaganda or attempt to bullshit others by providing (I'll use their Nazi Propaganda tactic: Falschmeldung, or) "misinformation" about their past should be investigated. That is their only defense, but what does the judge say?   
-  ------  
+------
 https://v.redd.it/3z1exuuqa1h91  
 /r/UncensoredScience  
 /u/Alehti  
@@ -802,7 +802,7 @@ https://v.redd.it/3z1exuuqa1h91
   
    
 Whenever I see someone fighting against oppression, fighting for freedom, and/or calling out bullshit Catholic/Duopoly/Oppressive/Patriarchy/Pedophile/Romische/Nazi Ideologies:   
-  ------  
+------
 https://v.redd.it/af5diys771h91  
 /r/UncensoredScience  
 /u/Alehti  
@@ -810,7 +810,7 @@ https://v.redd.it/af5diys771h91
   
    
 This is essentially how systemic oppression we works. just adhere to commands and stay in line. I imagine this should drive not one Catholics but most away :) haha   
-  ------  
+------
 https://v.redd.it/7q1py8f1q0h91  
 /r/UncensoredScience  
 /u/Alehti  
@@ -818,7 +818,7 @@ https://v.redd.it/7q1py8f1q0h91
   
    
 this is how they divide you, with fear that will literally never affect any of you reading this most likely. Always be sure to cancel out useless fear.   
-  ------  
+------
 https://i.redd.it/8v99pchbp0h91.jpg  
 /r/UncensoredScience  
 /u/Alehti  
@@ -826,7 +826,7 @@ https://i.redd.it/8v99pchbp0h91.jpg
   
    
 Just me looking at a Nazi, and a Nazi looking back toward me. Haha, I need some meme therapy, but then turned myself into three hundred memes.   
-  ------  
+------
 https://v.redd.it/qz38oj4xn0h91  
 /r/UncensoredScience  
 /u/Alehti  
@@ -834,7 +834,7 @@ https://v.redd.it/qz38oj4xn0h91
   
    
 If I read the news, it has to be AP, at least until it starts being negative. These stations purposely divide and never work on a solution that benefits everyone. demand this: 90k show up at the border w/o adults. Great survival and directional skills? really 200k parents abandon their children/yr?   
-  ------  
+------
 https://i.redd.it/y2litq10d0h91.gif  
 /r/UncensoredScience  
 /u/Alehti  
@@ -842,7 +842,7 @@ https://i.redd.it/y2litq10d0h91.gif
   
    
 here's where I'm at right now. The conspiracy propaganda and misinformation is said constantly on every network. You know what seems god damn sane lately? Gutfield, Wallace, and that's it. That should scare the hell out of you. Wallace not so much. Gutfield being the sane one? yes.   
-  ------  
+------
 .  
 /r/UncensoredScience  
 /u/Alehti  
@@ -850,7 +850,7 @@ here's where I'm at right now. The conspiracy propaganda and misinformation is s
   
    
 Possibly the dumbest idiots on this planet, or you're looking at a genuine propaganda film.   
-  ------  
+------
 ![](https://i.imgur.com/RhC1nIZ.png?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
@@ -858,7 +858,7 @@ Possibly the dumbest idiots on this planet, or you're looking at a genuine propa
   
    
 The difference between Google and Bing. Bing has been gaining my trust more. They're least likely to show you propaganda. I still use all three (a searx.space server.) Over 9 times I've threatened Google with fraudulently removing all links relevant to the license. They put it back for a day or so.   
-  ------  
+------
 https://i.imgur.com/QEydMHX.jpg  
 /r/UncensoredScience  
 /u/Alehti  
@@ -866,7 +866,7 @@ https://i.imgur.com/QEydMHX.jpg
   
    
 Here is the damn straw. I have said for how long now that our Education System is based on a medieval concept of Negative Reinforcement. I did not go to school from 1st through 7th grade. Look at the ones that went their whole life. If you cannot fail, you are not learning. You are obeying.   
-  ------  
+------
 ![](https://i.redd.it/sytl6navjzg91.png?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
@@ -874,7 +874,7 @@ Here is the damn straw. I have said for how long now that our Education System i
   
    
 Andrew A . Lehti | Research | You should be able to read most of my stuff here. Those have the DOI which you can input into archive.org to find the studies. Although. I do not have the link for all of the evidence against NASA. No matter. I'll find it later.   
-  ------  
+------
 https://independentresearcher.academia.edu/AndrewLehti  
 /r/UncensoredScience  
 /u/Alehti  
@@ -882,7 +882,7 @@ https://independentresearcher.academia.edu/AndrewLehti
   
    
 Public Resource License | Archives Reveal the Files CERN and NASA DELETED (File 1) | Notice: removed for spam which is how NASA and CERN attempt to take down anything they don't like on the internet. Ask Richard Stallman about it.   
-  ------  
+------
 https://web.archive.org/web/20220510032457/https://zenodo.org/record/6534003#.YnnbCvjP3rc  
 /r/UncensoredScience  
 /u/Alehti  
@@ -890,7 +890,7 @@ https://web.archive.org/web/20220510032457/https://zenodo.org/record/6534003#.Yn
   
    
 Look at that... Polio is back.   
-  ------  
+------
 &#x200B;  
   
 [Do you realize how much death the catholics are responsible for?](![](https://preview.redd.it/cclhngxs2zg91.png?width=480&format=png&auto=webp&s=35f7649ab0ff9e0abd13cd7f02a08707457901f0)?raw=true)
@@ -918,7 +918,7 @@ And every single day until that terrorist organization is outlawed from this Ear
   
    
 The Nazis don't want you to see that that they have been the ones responsible for crazy conspiracy and QAnon. And I not only contacted one intelligence agency, but 16. Or 3; 7? not sure. I am so bad at math and counting. I imagine that they can extract the history of downvotes and reports. #reveddit   
-  ------  
+------
 ![](https://i.redd.it/vjyz46tv0zg91.png?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
@@ -926,7 +926,7 @@ The Nazis don't want you to see that that they have been the ones responsible fo
   
    
 You know. I did take a look at all of the UFO stuff in the FBI Files Vault. The Nazis were imported into the USA starting in 1945. They started their setup in 1946, and began testing rockets and other machines that year in the desert. The first UFO sighting was 1947.   
-  ------  
+------
 It's not a coincidence. It was either once again Nazi propaganda in order to terrorize the allies via Operation Werwolf.  
   
 They could have very well have tested a rocket that completely got out of control and landed in Roswell. The fact that NOTHING had ever been discovered or seen before 1947 gives you your answer.  
@@ -942,7 +942,7 @@ Anyway. Have you heard of the Q Gospel Written by Anon?
   
    
 FBI Files: Jeffrey Epstein   
-  ------  
+------
 https://vault.fbi.gov/jeffrey-epstein  
 /r/UncensoredScience  
 /u/Alehti  
@@ -950,7 +950,7 @@ https://vault.fbi.gov/jeffrey-epstein
   
    
 FBI VAULT: UFO | I am not into UFOs, but I thought someone here might be. There are 16 documents with about 2000 pages worth of documents. I came across it in case anyone is interested. You can use EasyOCR to extract the text to handwriting if you don't have Acrobat.   
-  ------  
+------
 https://vault.fbi.gov/UFO  
 /r/UncensoredScience  
 /u/Alehti  
@@ -958,7 +958,7 @@ https://vault.fbi.gov/UFO
   
    
 There was a kid in high school and his solution to everything was, "Nuke 'em" and that's exactly what quarter of the country would say. don't... don't give them the launch codes lol.   
-  ------  
+------
 https://i.redd.it/q0m32d6f5yg91.jpg  
 /r/UncensoredScience  
 /u/Alehti  
@@ -966,7 +966,7 @@ https://i.redd.it/q0m32d6f5yg91.jpg
   
    
 I have written about the strange way that Nazis in NASA kept mentioned September 11th throughout the years when on the subject of a president. The documents also say that the Vatican is a target which is what you would say. That's their mortal enemy I thought? They slaughtered each other. Hmm.   
-  ------  
+------
 ![](https://i.redd.it/s7mjaxjvyxg91.png?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
@@ -974,7 +974,7 @@ I have written about the strange way that Nazis in NASA kept mentioned September
   
    
 The FBI Vault | Had no idea they released most of their records to the Public. Why the hell are we told they're so secretive? It was on their front page.   
-  ------  
+------
 https://vault.fbi.gov/  
 /r/UncensoredScience  
 /u/Alehti  
@@ -982,7 +982,7 @@ https://vault.fbi.gov/
   
    
 Not a conclusion, but a very semi detailed summary of the notes of the investigation and if you could do me a favor and upvote so that all may see. Thank you.   
-  ------  
+------
 https://www.reddit.com/r/UncensoredScience/comments/wkcdnn/so_are_we_not_going_to_talk_about_the_star_of/?utm_source=share&amp;utm_medium=web2x&amp;context=3  
 /r/UncensoredScience  
 /u/Alehti  
@@ -990,7 +990,7 @@ https://www.reddit.com/r/UncensoredScience/comments/wkcdnn/so_are_we_not_going_t
   
    
 Don't allow them to make you think you're alone. They couldn't go back a few days ago. They were mysteriously gone for a day or so when I reported the posts to the FBI. Isn't that strange.   
-  ------  
+------
 ![](https://i.redd.it/20tn0bwutxg91.png?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
@@ -998,7 +998,7 @@ Don't allow them to make you think you're alone. They couldn't go back a few day
   
    
 If you do not read history in multiple languages, and in their original form. You will succumbed to propaganda. If you don't see a similarity between the Inquisitors that invented hundreds of methods of torture like the Breast Ripper and Nazis, then are you even paying attention?   
-  ------  
+------
 https://www.reddit.com/r/UncensoredScience/comments/wl4qz5/if_you_do_not_read_history_in_multiple_languages/  
 /r/UncensoredScience  
 /u/Alehti  
@@ -1006,7 +1006,7 @@ https://www.reddit.com/r/UncensoredScience/comments/wl4qz5/if_you_do_not_read_hi
   
    
 I am a person that believes in transparency. I tell you what I am up to. I do not hold the values that the freemasons have for the freedom of religion. Freedom is fine until you overstep. I hold that the truth is beyond freedom. I could not imagine being trapped like one in Religious unconsciousness   
-  ------  
+------
 ![](https://i.redd.it/8ywam10kvwg91.png?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
@@ -1014,7 +1014,7 @@ I am a person that believes in transparency. I tell you what I am up to. I do no
   
    
 The people ruining Reddit, the US, half the world, are of course... The gas lighters.   
-  ------  
+------
 https://i.imgur.com/NtFP36m.jpg  
 /r/UncensoredScience  
 /u/Alehti  
@@ -1022,7 +1022,7 @@ https://i.imgur.com/NtFP36m.jpg
   
    
 Bots are traceable. Sales of downvotes are tracked. MOD history of post deletion is kept. And it's weird why the English contact for the BND is zentrale(a)bundesnachrichtendienst.de while the correct email is on most other languages: zentrale(a)bnd.bund.de; so weird. 👩‍💻   
-  ------  
+------
 https://i.imgur.com/XXBdsJT.jpg  
 /r/UncensoredScience  
 /u/Alehti  
@@ -1030,7 +1030,7 @@ https://i.imgur.com/XXBdsJT.jpg
   
    
 1994 Was Their Last Known Genocide. When are you going to realize that the Catholics are a terrorist organization and every one of them need to be expunged from Congress and every Catholic Church needs to be shut down. If you have a conscious, you'll cross post this. I just want to solve mathematics   
-  ------  
+------
 https://www.reddit.com/gallery/wkxw9n  
 /r/UncensoredScience  
 /u/Alehti  
@@ -1038,7 +1038,7 @@ https://www.reddit.com/gallery/wkxw9n
   
    
 The Only Way for Reddit to Fix Itself Less it Crash and Die.   
-  ------  
+------
 1. Remove downvotes completely. They are no use when they are used to censor. You can equally upvote content. The Catholics (because the only posts ever censored are about Catholics, NASA, and Nazis,) abuse this system.  
 2. Remove scores from posts and comments, but keep them available for others to check to make sure there isn't any bullshit happening.  
 3. All mods with subs over 10,000 need verification of their ID and location via mail that is not a PO BOX. Sign-ins must be required from that location or at least region. ***How Reddit dodged this bullet from Congress, I have no idea.***  
@@ -1054,7 +1054,7 @@ If Facebook can do most of the above, I think Reddit can. I thought Reddit was s
   
    
 Now this song makes a lot more sense. This song was about the Nazi Catholic Terrorists with 27% of the Entire Church's Clergy/Priest Being Accused of Sexual Misconduct. That is a true story, and they swept it under the rug 11 years ago. We are in a fact based society now. Use searx.space to search   
-  ------  
+------
 https://www.youtube.com/watch?v=hMtZfW2z9dw  
 /r/UncensoredScience  
 /u/Alehti  
@@ -1062,7 +1062,7 @@ https://www.youtube.com/watch?v=hMtZfW2z9dw
   
    
 And just a reminder. A cop does not have to disclose to you if they are a cop if they are undercover. That would be the dumbest shit ever.   
-  ------  
+------
 ![](https://i.redd.it/il2tdkw80vg91.png?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
@@ -1070,7 +1070,7 @@ And just a reminder. A cop does not have to disclose to you if they are a cop if
   
    
 Get ready everyone   
-  ------  
+------
 https://i.redd.it/jymbklekorg91.jpg  
 /r/UncensoredScience  
 /u/Alehti  
@@ -1078,7 +1078,7 @@ https://i.redd.it/jymbklekorg91.jpg
   
    
 Alehti's Reveddit | Post Censorship   
-  ------  
+------
 https://www.reveddit.com/y/alehti/?all=true  
 /r/UncensoredScience  
 /u/Alehti  
@@ -1086,7 +1086,7 @@ https://www.reveddit.com/y/alehti/?all=true
   
    
 How you can use PEMi Forensics on the Moon Landing Tutorial (see comment for videos and link)   
-  ------  
+------
 https://v.redd.it/b3p32ifohug91  
 /r/UncensoredScience  
 /u/Alehti  
@@ -1094,7 +1094,7 @@ https://v.redd.it/b3p32ifohug91
   
    
 My favorite new reaction. Whenever reaction vids become a more available option, I request this to be readily available.   
-  ------  
+------
 https://v.redd.it/t0q7wekqutg91  
 /r/UncensoredScience  
 /u/Alehti  
@@ -1102,7 +1102,7 @@ https://v.redd.it/t0q7wekqutg91
   
    
 The amount of bullshit you have to do just to find the photo of Hitler Praying   
-  ------  
+------
 ![](https://i.redd.it/t009fqhuatg91.png?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
@@ -1110,7 +1110,7 @@ The amount of bullshit you have to do just to find the photo of Hitler Praying
   
    
 Prependix C: Sort is Oldest to Newest August 6th through 9th: 66 Posts   
-  ------  
+------
 The post which primarily concludes everything and gives the gist:  
   
 * [So, are we not going to talk about the Star of David being an ancient freemason symbol which evolved into the Eye of Providence and that the Jews adopted it in 1897, Israel in 1948; and that Goliath was a Philistine meaning lover of free thought, and Palestine meaning the destroyer of free thinkers? : UncensoredScience](https://www.reddit.com//r/UncensoredScience/comments/wkcdnn/so_are_we_not_going_to_talk_about_the_star_of/)  
@@ -1189,7 +1189,7 @@ Posts
   
    
 There's a lot more to this list but this should suffice. Though it is a very small list, you should know almost every terrible thing that America has ever done have been from the Catholics.   
-  ------  
+------
 https://i.redd.it/a7x4o05y0tg91.jpg  
 /r/UncensoredScience  
 /u/Alehti  
@@ -1197,7 +1197,7 @@ https://i.redd.it/a7x4o05y0tg91.jpg
   
    
 Direct Link to Perform PEMi Analysis. The PEMi analysis uses the ELA (Error Level Analysis) libraries but utilizes the libraries in the opposite spectrum. Desktop required to save photos. Local processing only meaning you can use it offline: JPEG QUALITY: 5; ERROR LEVEL: 40 to 60   
-  ------  
+------
 https://29a.ch/photo-forensics/#error-level-analysis  
 /r/UncensoredScience  
 /u/Alehti  
@@ -1205,7 +1205,7 @@ https://29a.ch/photo-forensics/#error-level-analysis
   
    
 The Moment Disney Became a Bro.   
-  ------  
+------
 &#x200B;  
   
 ![](https://preview.redd.it/9babyskxlsg91.png?width=704&format=png&auto=webp&s=1752840a9b3044d17c0713c47432304f584b8e33?raw=true)
@@ -1225,7 +1225,7 @@ The video is here: [https://youtu.be/1O-NwCbr-ic](https://youtu.be/1O-NwCbr-ic)
   
    
 A Correction to Human History: Swastika, Manji, Aryan.   
-  ------  
+------
 1. Swastika is not a Sanskrit symbol: it is one of the most ancient symbols that appeared in the Neolithic age. It was drawn both backwards and forwards throughout the world. It is not a symbol that means peace. It is the symbol of our most ancient god; this god would slowly change throughout time, and eventually got to the point where it was so different that religions were formed. Dyeus Phtr | Dyēus Phter | Dyeus Pəter | Dyaus Pitar | deiwós | diwyós | deynos | dyēus | dyaos.  
 2. Aryan is not a race, it is a language group, and of this group comes the existence of every single human alive today. The etymology below actually proves this.  
 3. The obsession of "genetic" superiority most likely stems from a time when the neanderthal were still around. The judgement of humans is very clear. There was a race of humans that were not only different, but could be classified as their own species. It is only reasonable to imagine that we killed off the neanderthal and were told not to mate with them in order to exclude the genetic variant that we considered to be inferior.  
@@ -1263,7 +1263,7 @@ Thanks to language scholars, they have connected every language to it.
   
    
 Coining: Spider-Sac Strategy   
-  ------  
+------
 Ever since Ancient Rome, the Romans prepare their downfall by establishing seeds throughout their empire. I call this the Spider-Sac Strategy because if you do not fully crush or stomp onto a spider/sac, hundreds escape to form new spiders.  
   
 Constantine I before the fall of Rome created the Catholic Church, and that eventually formed into the Holy Roman Empire; the north providence of the Roman Empire was overthrown for a short period before the emperor took back the land and formed the British Empire.  
@@ -1279,7 +1279,7 @@ There is a lot more to this, I just haven't added it to this chart yet.
   
    
 Stop fucking with the rights of women, and humans in general or else we'll take away your right to worship fairytales in delusion. You know. Most would be sent to the insane asylum had someone made the same religions in a world where religion never existed.   
-  ------  
+------
 https://i.redd.it/p1ph34amprg91.jpg  
 /r/UncensoredScience  
 /u/Alehti  
@@ -1287,7 +1287,7 @@ https://i.redd.it/p1ph34amprg91.jpg
   
    
 It's only the truth. Who's even in charge of the algorithm? I bet it's a very small group of people that report to people who have no idea what they're looking at.   
-  ------  
+------
 https://i.redd.it/fg2udau6mrg91.jpg  
 /r/UncensoredScience  
 /u/Alehti  
@@ -1295,7 +1295,7 @@ https://i.redd.it/fg2udau6mrg91.jpg
   
    
 So, are we not going to talk about the Star of David being an ancient freemason symbol which evolved into the Eye of Providence and that the Jews adopted it in 1897, Israel in 1948; and that Goliath was a Philistine meaning lover of free thought, and Palestine meaning the destroyer of free thinkers?   
-  ------  
+------
 https://www.reddit.com/r/UncensoredScience/comments/wkcdnn/so_are_we_not_going_to_talk_about_the_star_of/  
 /r/UncensoredScience  
 /u/Alehti  
@@ -1303,7 +1303,7 @@ https://www.reddit.com/r/UncensoredScience/comments/wkcdnn/so_are_we_not_going_t
   
    
 WWII America vs. Nationalists via Star Wars (America, F**k, Yeah! Version) [I removed the parts where most aren't ready to see and clarified the parts better. I bet you didn't know that the Vatican's own documents proved their involvement with the Nazis, Adolf, Benito, and WWII]   
-  ------  
+------
 https://www.youtube.com/watch?v=1O-NwCbr-ic  
 /r/UncensoredScience  
 /u/Alehti  
@@ -1311,7 +1311,7 @@ https://www.youtube.com/watch?v=1O-NwCbr-ic
   
    
 just going to leave this here for you all to view. It's not unpatriotic to question your government. In the USA, the most patriotic thing you can do is question the people running departments in the US   
-  ------  
+------
 https://v.redd.it/zuiykhc1iqg91  
 /r/UncensoredScience  
 /u/Alehti  
@@ -1319,7 +1319,7 @@ https://v.redd.it/zuiykhc1iqg91
   
    
 Remember how the Catholics play both sides?   
-  ------  
+------
 https://i.imgur.com/sTRb3z9.jpg  
 /r/UncensoredScience  
 /u/Alehti  
@@ -1327,7 +1327,7 @@ https://i.imgur.com/sTRb3z9.jpg
   
    
 For real though. DENSE AS A ROCK IF YOU'VE EVALUATED photos and thought that they were real. Maybe most people are just really, really, really dumb. 🤷   
-  ------  
+------
 https://youtu.be/V0uLVF1dWj0#nope  
 /r/UncensoredScience  
 /u/Alehti  
@@ -1335,7 +1335,7 @@ https://youtu.be/V0uLVF1dWj0#nope
   
    
 We are living in fucking North Korea. I decided to be direct because I was tired of PUSSY FOOTING around. See how they arrive en masse? hardly any comments. It gets to 101, and then shoots down to 66 with 32 comments like "nice filter."   
-  ------  
+------
 https://www.reddit.com/gallery/wjlths  
 /r/UncensoredScience  
 /u/Alehti  
@@ -1343,7 +1343,7 @@ https://www.reddit.com/gallery/wjlths
   
    
 Here are a few quotes that you should read every day. They may not be his, but I am certain they are given the propaganda/misinformation about Albert Einstein. Nonetheless, great quotes to live by.   
-  ------  
+------
 https://gitresearch.com  
 /r/UncensoredScience  
 /u/Alehti  
@@ -1351,7 +1351,7 @@ https://gitresearch.com
   
    
 America 🗽(and I am not a liberal nor conservative: omnicrat)   
-  ------  
+------
 https://v.redd.it/u9lvu1lqqjg91  
 /r/UncensoredScience  
 /u/Alehti  
@@ -1359,7 +1359,7 @@ https://v.redd.it/u9lvu1lqqjg91
   
    
 If you want to sue the Federal Government, here is how you do it despite the fallacies stating that the government cannot be sued. Here is how the law works. It must be fair to do to both if equal, and even a napkin scribble is enforceable.   
-  ------  
+------
 The first method comes from the supreme court:  
   
 No State shall make or enforce any law which shall abridge the privileges or immunities of citizens of the United States; nor shall any State deprive any person of life, liberty, or property, without due process of law; nor deny to any person within its jurisdiction the equal protection of the laws.  
@@ -1388,7 +1388,7 @@ There's also a law that states all within the judicial branch must up hold the c
   
    
 So, let me get this straight. I found a way to extract a black hole with very little thought. I discovered a method to remove layers of light (think cable when there is a thunderstorm and outlines of different objects appear) but it took NASA 20 years, billions of dollars, and 100s of researchers.   
-  ------  
+------
 https://i.imgur.com/G8BU2DC.jpg  
 /r/UncensoredScience  
 /u/Alehti  
@@ -1396,7 +1396,7 @@ https://i.imgur.com/G8BU2DC.jpg
   
    
 Wait. Hold up. Something Ain't Right. Just hold on a GD MINUTE! Gays have had rights in Russia since 1993? Transgender (Gender Change) have had rights since 1997?! We're the ones living in propaganda, and it's caused by the Catholics! 80% of Russians approve; Americans only 70%.   
-  ------  
+------
 https://www.reddit.com/gallery/wje1lg  
 /r/UncensoredScience  
 /u/Alehti  
@@ -1404,7 +1404,7 @@ https://www.reddit.com/gallery/wje1lg
   
    
 do you want to see the effects of gas lighting? Look at what's happened to him. Look at crap he had to sell because it was the only thing keeping him going. They absolutely systemically squeeze you and will drive you to insanity. You can help by giving to $PublicNews   
-  ------  
+------
 https://v.redd.it/heh6uv7ngig91  
 /r/UncensoredScience  
 /u/Alehti  
@@ -1412,7 +1412,7 @@ https://v.redd.it/heh6uv7ngig91
   
    
 I almost lost hope due to no one seeing it but then saw 56% and the amount of people that know exactly what to do with only ~250 views, which 70% are bot crawlers.   
-  ------  
+------
 ![](https://i.redd.it/u5mpv0lowhg91.png?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
@@ -1420,7 +1420,7 @@ I almost lost hope due to no one seeing it but then saw 56% and the amount of pe
   
    
 The USA to NASA and the laws which Catholics Pass when they find out that the Nazis were just Catholics in Disguise and that the Catholics are the ones that allowed for all the Nazi S.S. Scientists that swore an oath to Adolf Hitler that they would continue the Nazi Party through operation Werwolf.   
-  ------  
+------
 https://v.redd.it/512ax8i3khg91  
 /r/UncensoredScience  
 /u/Alehti  
@@ -1428,7 +1428,7 @@ https://v.redd.it/512ax8i3khg91
   
    
 The video some traitor deleted from the USMC subreddit; what? They hated the comments of Marines saying that they fucking loved this country? Sounds like jealously. Catholics openly admit that they would betray their country if the Pope/God asked them to. I'm neither party. Stop fucking with humans.   
-  ------  
+------
 https://v.redd.it/yb9ni4c6fhg91  
 /r/UncensoredScience  
 /u/Alehti  
@@ -1436,7 +1436,7 @@ https://v.redd.it/yb9ni4c6fhg91
   
    
 Ohh NASA is using their same tactic of SPAM again. They're reporting every single one of my posts haha.   
-  ------  
+------
 ![](https://i.redd.it/meoxy01jahg91.png?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
@@ -1444,7 +1444,7 @@ Ohh NASA is using their same tactic of SPAM again. They're reporting every singl
   
    
 I have a feeling the FBI is going to be fucking irritated with every post that was removed. I mean. Look at the snapshot here. USMC deleting the National Anthem, Anti-Propaganda to restore the Name of America? If the FBI doesn't publicly investigate. Make sure your congressman knows about it.   
-  ------  
+------
 ![](https://i.redd.it/co99eguf8hg91.png?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
@@ -1452,7 +1452,7 @@ I have a feeling the FBI is going to be fucking irritated with every post that w
   
    
 The Largest Piece of Evidence that I have is Reveddit which I sent to the FBI as well. I hope they like to see the National Anthem being deleted from the USMC subreddit when it contained no political message. The only message was a reminder to not let them divide us.   
-  ------  
+------
 https://www.reveddit.com/y/alehti/?all=true  
 /r/UncensoredScience  
 /u/Alehti  
@@ -1460,7 +1460,7 @@ https://www.reveddit.com/y/alehti/?all=true
   
    
 Well. That was a large report. Let's see if it is taken seriously this time. I don't believe in the fallacy of secret investigations when everyone knows what the hell is going on.   
-  ------  
+------
 ![](https://i.redd.it/w6qu72ww0hg91.png?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
@@ -1468,7 +1468,7 @@ Well. That was a large report. Let's see if it is taken seriously this time. I d
   
    
 CNN Chart | Lucidspark: if you want to see the content I currently have, this is the chart. I had to take a break after going through the torture methods that the Catholics which made me sick to my stomach. It worked out though. I had to ensure that my chart would not be deleted by reporting it.   
-  ------  
+------
 https://lucid.app/lucidspark/96370994-6bbf-4cbd-9615-41416e0fb2df/edit?viewport_loc=3309%2C-1053%2C4098%2C1947%2C0_0&amp;invitationId=inv_11f0e221-4924-4913-b5c1-0e97aebb5ffa#  
 /r/UncensoredScience  
 /u/Alehti  
@@ -1476,7 +1476,7 @@ https://lucid.app/lucidspark/96370994-6bbf-4cbd-9615-41416e0fb2df/edit?viewport_
   
    
 Linked to a medical study which links to a curation of the same studies performed for generations. LIKE I said. If the doors of Reddit are not kicked down. I'm going to write a harshly worded letter. 🤧😂   
-  ------  
+------
 ![](https://i.redd.it/1xy9fkxbvgg91.png?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
@@ -1484,7 +1484,7 @@ Linked to a medical study which links to a curation of the same studies performe
   
    
 Had they not been so bigoted with a huge history of Genocide while having zero respect for the rights of women, then I wouldn't have cared. You can find the Statue of Jupiter all over the Vatican; only he isn't called Jupiter there.   
-  ------  
+------
 https://i.imgur.com/LwW9CPN.jpg  
 /r/UncensoredScience  
 /u/Alehti  
@@ -1492,7 +1492,7 @@ https://i.imgur.com/LwW9CPN.jpg
   
    
 Christ simply means messager/speaker before it was converted into a last name. Last names were usually occupational, house, creed, title, etc. Antichrist in the Bible is just one that speaks against it. We're all antichrists. But... [Me to myself: "stop egging on the nazis."] Also me:   
-  ------  
+------
 https://i.imgur.com/F3nI2jO.jpg  
 /r/UncensoredScience  
 /u/Alehti  
@@ -1500,7 +1500,7 @@ https://i.imgur.com/F3nI2jO.jpg
   
    
 The Chart of Dopamine Levels. The cause between most "mental illnesses." Bipolar, ADHD, and Schizophrenia are not mental illnesses. Everything is so simple to one with SZD that Catholic Gas lightning easily drives them to insanity. Dopamine is released from anything enjoyable. #CoverYourAnkles   
-  ------  
+------
 https://www.reddit.com/gallery/wj3269  
 /r/UncensoredScience  
 /u/Alehti  
@@ -1508,7 +1508,7 @@ https://www.reddit.com/gallery/wj3269
   
    
 Well, it actually took me 10 years. In high school I signed up to visit a nursing home with others to chat with essentially abandoned elders. The gentleman Id have a conversation with when I visited eventually forgot who I was. It bothered me so deeply to see the brain die that I had to find out why   
-  ------  
+------
 https://pubmed.ncbi.nlm.nih.gov/22847088/  
 /r/UncensoredScience  
 /u/Alehti  
@@ -1516,7 +1516,7 @@ https://pubmed.ncbi.nlm.nih.gov/22847088/
   
    
 I figured I should post what this sub is exactly and how it got to this point to where it's basically just my posts updating on the Nazi situation. Here's your first lesson. Misinformation was used to gain control of what was true or false in Nazi Germany, Groomer is antisemitic. See comment.   
-  ------  
+------
 https://i.imgur.com/QMpflQc.jpg  
 /r/UncensoredScience  
 /u/Alehti  
@@ -1524,7 +1524,7 @@ https://i.imgur.com/QMpflQc.jpg
   
    
 China is said to have banned freemasons [no citation.] Taiwan holds the only remaining lodges. Vatican has corrupted unknown lodges. There are two origins of freemasonry in China. One with East India Trading. Are they protecting or oppressing the bad or good freemason lodges? To meme or not to meme?   
-  ------  
+------
 https://v.redd.it/2wdd1uonmfg91  
 /r/UncensoredScience  
 /u/Alehti  
@@ -1532,7 +1532,7 @@ https://v.redd.it/2wdd1uonmfg91
   
    
 Cultural Genocide? How about regular genocide. And only Canada? "Smacks of the Pulpit." Which is coincidentally my new favorite quote.   
-  ------  
+------
 https://www.ncronline.org/news/vatican/pope-francis-says-catholic-church-committed-cultural-genocide-canadas-indigenous  
 /r/UncensoredScience  
 /u/Alehti  
@@ -1540,7 +1540,7 @@ https://www.ncronline.org/news/vatican/pope-francis-says-catholic-church-committ
   
    
 Went to the Holy Roman Empire wikipedia page. Someone has been vandalizing it by removing the association as being the First Reich. I went to check the history and you can only do that by pressing the edit button. It was fine yesterday. The last time I edited was a year ago.   
-  ------  
+------
 https://www.reddit.com/gallery/wj0m2x  
 /r/UncensoredScience  
 /u/Alehti  
@@ -1548,7 +1548,7 @@ https://www.reddit.com/gallery/wj0m2x
   
    
 I found it too funny not to post and then not to screengrab and post. Lol. But like I said. You really don't think they look at what I post? They aren't terribly far away. I assure you on that. You should research into the FBI, they have a fascinating comb throughout the USA. Bureaucracy slows them.   
-  ------  
+------
 ![](https://i.redd.it/wi7xd3ei8fg91.png?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
@@ -1556,7 +1556,7 @@ I found it too funny not to post and then not to screengrab and post. Lol. But l
   
    
 Dear u/Reddit and r/Reddit; if you do not remove the misinformation report button, and if you do not bring back the "community interference," button, then you are most definitely a part of this Nazi Falschmeldung (false report/misinformation which was used to give Hitler power.)   
-  ------  
+------
 Misinformation is the most brain dead thing I've heard. If you are not smart enough to research a little beyond the surface level, then that's only because they've made you feel that you are not smart enough.  
   
 Fuck em. That's all you have to say. Humans have the ability to make educated decisions the more they research history and the bullshit that these idiots have tried to pull. It's identical behavior.  
@@ -1568,7 +1568,7 @@ Mathematics won't help you. Business won't help you. Law won't help you. Physics
   
    
 Need further proof? The CEO of Reddit Steve Haffman and every employee of Reddit needs to be deeply investigated. FBI keywords like school shooting, planning, plan, nuclear attack, kill the president, USA, bomb may be mentioned to get their attention. The safety of humans is why I'm here.   
-  ------  
+------
 https://www.reddit.com/gallery/wiznl7  
 /r/UncensoredScience  
 /u/Alehti  
@@ -1576,7 +1576,7 @@ https://www.reddit.com/gallery/wiznl7
   
    
 Prime EXAMPLE OF A CATHOLIC NAZI   
-  ------  
+------
 ![](https://i.imgur.com/K6GMBbr.png?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
@@ -1584,7 +1584,7 @@ Prime EXAMPLE OF A CATHOLIC NAZI
   
    
 Here are some things that I've stumbled upon which concern me.   
-  ------  
+------
 Russia has been a freemason country since the 1800s.  
   
 Why would Russia help us destroy the Nazis if we were such great enemies?  
@@ -1632,7 +1632,7 @@ I then found out that the Vatican is gaining more and more control of Eastern Eu
   
    
 Aside from hunting Nazis. You should be eating Yogurt, Blueberries, and Flaxseed Oil. I usually do every other day but I've forgotten the last couple of weeks. I had to take a picture because it looks unappetizing.   
-  ------  
+------
 https://i.imgur.com/GzGPEg4.jpg  
 /r/UncensoredScience  
 /u/Alehti  
@@ -1640,7 +1640,7 @@ https://i.imgur.com/GzGPEg4.jpg
   
    
 You know. Thinking about it. It's definitely Reddit. I'm always on here wasting my time. They could have easily prevented anti-NAZI posts and history from being filtered. Instead, antisemitic posts are highlighted. What corporation doesn't have their legal team respond for 5 months? They're aware.   
-  ------  
+------
 https://www.reddit.com/r/UncensoredScience/comments/wixzgv/you_know_thinking_about_it_its_definitely_reddit/  
 /r/UncensoredScience  
 /u/Alehti  
@@ -1648,7 +1648,7 @@ https://www.reddit.com/r/UncensoredScience/comments/wixzgv/you_know_thinking_abo
   
    
 And you know that's just the tip of the ice berg. If you've never changed your behavior for centuries, it gets obvious. They attempt a genocide once every hundred years.   
-  ------  
+------
 https://i.imgur.com/yzbbkS2.jpg  
 /r/UncensoredScience  
 /u/Alehti  
@@ -1656,7 +1656,7 @@ https://i.imgur.com/yzbbkS2.jpg
   
    
 Here is what I think of the people fooled by "misinformation."   
-  ------  
+------
 https://i.imgur.com/aXrNqBa.jpg  
 /r/UncensoredScience  
 /u/Alehti  
@@ -1664,7 +1664,7 @@ https://i.imgur.com/aXrNqBa.jpg
   
    
 They disliked down to 25% and for every like that the video got, it received one more downvote instantly to stop distribution. I've shortened this to where Hitler is annihilated. The U.S. is system of checks and balances. The Nazis/Catholics have no real power, only the illusion of power.   
-  ------  
+------
 https://v.redd.it/7gayzrng8eg91  
 /r/UncensoredScience  
 /u/Alehti  
@@ -1672,7 +1672,7 @@ https://v.redd.it/7gayzrng8eg91
   
    
 HISTORY IS POLITICAL NOW. If you want to say you can't accept a video due to political reasons, well: CONGRATULATIONS, you've now included literally everything and every category. Anytime you can argue something, it is political. And it's truly the worst and most obvious attempt at op   
-  ------  
+------
 ![](https://i.imgur.com/nx3bL6v.png?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
@@ -1680,7 +1680,7 @@ HISTORY IS POLITICAL NOW. If you want to say you can't accept a video due to pol
   
    
 VAT FACT: The Catholics cry that they're being oppressed and attacked to make it seem like they aren't the ones attacking humanity. If you look, there's 1000s of sites "tracking" and showcasing Anti-Catholicism. Yet, I've been ranting for months that they're Nazis. Why won't they show my work?   
-  ------  
+------
 Because it's all GD true. Just like they have throughout history, they've made their own narratives of the attacks against them. My content has been viewed nearly 100,000 from unique accounts over my "attacks" as they would normally call them.  
   
 They aren't attacks. It's not a conspiracy theory in their sense of the definition, but it IS a conspiracy theory:  
@@ -1702,7 +1702,7 @@ You know who else deny the accusations against them? Nazis.
   
    
 They downvote fast AF. As if the German government isn't monitoring the users that downvote and comment intentionally misleading arguments. Yes, the FBI has a checks and balance, and haven't heard from them in awhile. Doesn't mean they aren't watching as well but we need outside help.   
-  ------  
+------
 ![](https://i.imgur.com/X7jeZFP.png?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
@@ -1710,7 +1710,7 @@ They downvote fast AF. As if the German government isn't monitoring the users th
   
    
 There is so much propaganda and fake conspiracies about the Freemasons from the Nazis and Catholics. The triangle has been a symbol of Catholicism for 1k years. The eye is veering through a key hole always watching for evil to creep from the Vatican. Before the triangle, they used the next symbol.   
-  ------  
+------
 https://www.reddit.com/gallery/wiud60  
 /r/UncensoredScience  
 /u/Alehti  
@@ -1718,7 +1718,7 @@ https://www.reddit.com/gallery/wiud60
   
    
 The single most important piece about the video that will help you put it all together is one that I did not expressively state within the video for the soul reason of making this video short.   
-  ------  
+------
 https://youtu.be/adQFN97Ycwc  
 /r/UncensoredScience  
 /u/Alehti  
@@ -1726,7 +1726,7 @@ https://youtu.be/adQFN97Ycwc
   
    
 LOOK at what appeared under my video of freemasons fighting for freedom. You know Scotland has a huge history of freemasonry. What was that one brave film? THEY said freemasons have had a history of GROOMING people. MAFIA are Catholic. CATHOLICS CAN'T BE FREEMASONS.   
-  ------  
+------
 ![](https://i.imgur.com/IWAre9B.png?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
@@ -1734,7 +1734,7 @@ LOOK at what appeared under my video of freemasons fighting for freedom. You kno
   
    
 History of America: Catholics [Romans, Nazis, Oppression, Taiwan, Russia, Amphetamines, Consciousness, Ma Huang, Cognitive Processing, Vatican Propaganda Deceptive Comments, Star of David, Philistine and Palestine, Scientific Method, Illuminati Existence, Freemasons, on all sides causing terrorism]   
-  ------  
+------
 https://v.redd.it/az17i3jbxcg91  
 /r/UncensoredScience  
 /u/Alehti  
@@ -1742,7 +1742,7 @@ https://v.redd.it/az17i3jbxcg91
   
    
 Not speaking out against terrorists supports terrorism just as much as actually helping them.   
-  ------  
+------
 https://i.imgur.com/NRrJw9j.jpg  
 /r/UncensoredScience  
 /u/Alehti  
@@ -1750,7 +1750,7 @@ https://i.imgur.com/NRrJw9j.jpg
   
    
 65% to 75% have more loyalty for the Pope and would... well, fuck. What do you think they've been doing? KKK, Nazism, Confederacy, Operation Paperclip, In God We Trust, Tar and Feathering, playing both sides, Slavery, Racism, etc.   
-  ------  
+------
 https://i.redd.it/hgcybeuyg6g91.jpg  
 /r/UncensoredScience  
 /u/Alehti  
@@ -1758,7 +1758,7 @@ https://i.redd.it/hgcybeuyg6g91.jpg
   
    
 Let's talk about the concern here: Pope over your Nation?   
-  ------  
+------
 &#x200B;  
   
 [60&#37; of religious persons say they would betray their country if given orders by the Pope\/God.](![](https://preview.redd.it/5g0etjme46g91.png?width=636&format=png&auto=webp&s=06e73d64547400d592084152daa3f67f2d604c1c)?raw=true)
@@ -1784,7 +1784,7 @@ Hey UNITED STATES, you better go check up on the Pope. Pay him a visit he can't 
   
    
 Catholic Propaganda   
-  ------  
+------
 They don't need to rely on PEW RESEARCH. That's extremely misguiding because the Church takes their own census. What a completely moronic thing to do.  
   
 ![](https://preview.redd.it/wdvho0of16g91.png?width=612&format=png&auto=webp&s=a91d8c9a6d79e6a431f81e5a8e593b674685cbf4?raw=true)
@@ -1814,7 +1814,7 @@ Yes. You may live in an area where you know 10 people that are Catholic. Doesn't
   
    
 I believe in equality. Next, the Vedic Dyaus Patir which later would appear in Buddhism as the trinity Buddha Devas and later Putradeva.   
-  ------  
+------
 https://i.imgur.com/aVKZ8VN.jpg  
 /r/UncensoredScience  
 /u/Alehti  
@@ -1822,7 +1822,7 @@ https://i.imgur.com/aVKZ8VN.jpg
   
    
 When you want to prove a mathematical correction. Ha. You DON'T DO IT ON REDDIT. But, it does give me a bit of validation. This correction takes more time. It has to go through many committees. Jo_Nazi_44503666 is not a committee. I post updates and ideas to allow others to track you as well.   
-  ------  
+------
 https://www.reddit.com/gallery/whpxw7  
 /r/UncensoredScience  
 /u/Alehti  
@@ -1830,7 +1830,7 @@ https://www.reddit.com/gallery/whpxw7
   
    
 Here is a rant to Nazis that are relentless to keep their Aryan Physics (not joking) Imagine being a brain-dead Nazi that reports this as misinformation. THE SQUARE ROOT r2 IS = TO ^0.5. The EQUATIONS are the SAME so no matter WHAT YOU DO, you CANNOT win this game of lies, fraud, and deceit. Watch.   
-  ------  
+------
 https://www.reddit.com/gallery/whoaqg  
 /r/UncensoredScience  
 /u/Alehti  
@@ -1838,7 +1838,7 @@ https://www.reddit.com/gallery/whoaqg
   
    
 [VID] Intro to my Vatican Study Operation Werwolf: NASA and other Nazi Space Agencies via Operation Paperclip and alike: killed hundreds of animals by blowing them up or leaving them for dead around Earth; the reason we shouldn't be taking from our core, and why Werwolf and Moon coincide.   
-  ------  
+------
 *Processing video w9jwrrcsz2g91...*  
   
 # PEMi Introduction:  
@@ -1904,7 +1904,7 @@ The lower it goes, the more the colors begin to blend back together:
   
    
 But no. That could never happen. No one would ever lie for power. The Catholics have always pioneered new inventions like Torture Devices and the Dark Age.   
-  ------  
+------
 https://i.imgur.com/IaWsgkj.jpg  
 /r/UncensoredScience  
 /u/Alehti  
@@ -1912,7 +1912,7 @@ https://i.imgur.com/IaWsgkj.jpg
   
    
 Prependix B: 49 Posts   
-  ------  
+------
 &#x200B;  
   
 1. [THIS IS: A Curation in Order to Understand the World Today and How We Can Fix it | I Could Never Imagine Going Through Life Never Understanding the World like the World Does Today || 36 short form articles with free access tags.](https://www.reddit.com//r/UncensoredScience/comments/wha9wy/dumb_ass_nazis_ive_been_waiting_for_them_to/)  
@@ -1970,7 +1970,7 @@ Prependix B: 49 Posts
   
    
 Part 2: this is when I began double checking laws from this sheet I made to help others. 4-5 are wrong now that I found all the index laws. It was from here that I found calculators were biased. They would ONLY perform the second index law IF it was not a negative. Watch Iron Front/Cross GASLIGHTHIS   
-  ------  
+------
 https://www.reddit.com/r/UncensoredScience/comments/whigd0/daily_directory_300_posts_catholic_crusader_holy/  
 /r/UncensoredScience  
 /u/Alehti  
@@ -1978,7 +1978,7 @@ https://www.reddit.com/r/UncensoredScience/comments/whigd0/daily_directory_300_p
   
    
 [DAILY DIRECTORY 300+ POSTS]- Catholic \+/ Crusader + Holy Roman Empire + Nazis + Red Cross + Slave Trade + Nationalists + Supremacists + Fascists + Confederates + East India TC + Christopher Columbus + Spanish Inquisition + and those are just some of the seeds of evil next to their same Iron Cross.   
-  ------  
+------
 I will add new posts to the top here; but when you have moral qualities, then your ego, humility go straight out the window. If I have to ridicule myself and make myself look like an ass in order to expose a threat to this country and its people, then you sure as hell can bet that I will.   
   
 [NEWEST POSTS](https://preview.redd.it/721ze8ly21g91.jpg?width=640&format=pjpg&auto=webp&s=73bb573ba9db250ae5f808d3406eff087d52f9ec)  
@@ -2102,7 +2102,7 @@ POST PREPENDICES:
   
    
 Prependix B: 100 Posts   
-  ------  
+------
 1. [I Spy with my Google Eye More Propaganda/Misleading Bullshit.](https://www.reddit.com//r/UncensoredScience/comments/wgjwbf/i_spy_with_my_google_eye_more/)  
 2. [I thought I'd Shorten the Article for You.](https://www.reddit.com//r/UncensoredScience/comments/vnpcn3/i_thought_id_shorten_the_article_for_you/)  
 3. [I told you](https://www.reddit.com//r/UncensoredScience/comments/w4iimh/i_told_you_stop_being_nice_to_the_ones_that_tell/)  
@@ -2209,7 +2209,7 @@ Prependix B: 100 Posts
   
    
 Prependix A: 92 POSTS   
-  ------  
+------
 Prependix A:  
   
 &#x200B;  
@@ -2312,7 +2312,7 @@ Prependix A:
   
    
 Here's the deal: I authored this method, it absolutely can extract black holes: hence discovery. No one truly believes we landed on the moon. Operation Paperclip brought in Nazis. Operation Werwolf was meant to drive us insane. Mission accomplished. This reveals source, type and intensity of light.   
-  ------  
+------
 https://v.redd.it/makebp7do0g91  
 /r/UncensoredScience  
 /u/Alehti  
@@ -2320,7 +2320,7 @@ https://v.redd.it/makebp7do0g91
   
    
 Part 1: Proof that numbers are a repeatable pattern; I don't get why everyone finds this so hard to understand. If it was not, then the entire system is broken. It is so asinine to think the Collatz Conjecture is anything meaningful. And there are two mistakes on this one: it's an older version.   
-  ------  
+------
 https://www.reddit.com/gallery/whddki  
 /r/UncensoredScience  
 /u/Alehti  
@@ -2328,7 +2328,7 @@ https://www.reddit.com/gallery/whddki
   
    
 dumb ass Nazis, I've been waiting for them to delete that post. It's been awhile since I started this. But. I'm no longer needed. Hundreds of Marines that cannot help but share cringe have viewed my rant. oh. the anger was real. You can't just be angry though.   
-  ------  
+------
 https://i.redd.it/q83k66hvhzf91.jpg  
 /r/UncensoredScience  
 /u/Alehti  
@@ -2336,7 +2336,7 @@ https://i.redd.it/q83k66hvhzf91.jpg
   
    
 THIS is a petition I made for Native Americans to sue the government. However, the government while by the creed of Catholic greed is responsible, this shall hold the Vatican and all Catholic Churches responsible for the Genocide of the Native Americans and Jews (USA/EU) and others abroad. Lk@subtxt   
-  ------  
+------
 https://change.org/nativeamerican  
 /r/UncensoredScience  
 /u/Alehti  
@@ -2344,7 +2344,7 @@ https://change.org/nativeamerican
   
    
 I said I was going to leave and the fucking traitors removed the fucking national anthem from USMC. You know. Fuck it. Class action lawsuit of Native Americans against every fucking Catholic Church for the Genocide of the Native Americans.   
-  ------  
+------
 ![](https://i.imgur.com/Shc8G4n.png?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
@@ -2352,7 +2352,7 @@ I said I was going to leave and the fucking traitors removed the fucking nationa
   
    
 How would you like to learn about the First Reich (The Holy Roman Empire) half of which exists today as a Multinational Terrorist Organization. And just a reminder. Fact checkers confirm that their 2k YO history of terrorism qualifies it as such.   
-  ------  
+------
 https://www.reddit.com/gallery/wh0doy  
 /r/UncensoredScience  
 /u/Alehti  
@@ -2360,7 +2360,7 @@ https://www.reddit.com/gallery/wh0doy
   
    
 Learning the disturbing and vile history of the 2k YO Catholic Terrorist Organization which was the secret enemy the founding fathers fought against can be gut wrenching and disturbing. This video reminds me every time that this country is made of (misguided at the moment) good people at heart.   
-  ------  
+------
 https://v.redd.it/f29ahaertdf91  
 /r/UncensoredScience  
 /u/Alehti  
@@ -2368,7 +2368,7 @@ https://v.redd.it/f29ahaertdf91
   
    
 Would you support this organization especially if their views on abortion and the rights of women are vaguely identical still? Imagine if they had legal power again. This is why it is not misinformation/hate speech to call Catholics a Terrorist Organization. Not all are, but they support it still.   
-  ------  
+------
 If it was medieval, or in Europe between 300 and 1945A.D., then you can be sure that it was from the Vatican aka the remaining half of the first reich.  
   
 Do you agree with this? Because I wouldn't support any organization with this in their history, and they have hundreds of these torture devices.  
@@ -2402,7 +2402,7 @@ The only people capable of performing torture like the above are NAZIS.
   
    
 I was going to save this for a bit later, but seeing as to how they keep gaslighting mathematics; I have good news! Calling the Catholic's what they are: TERRORISTS was not considered hate speech, misinformation, harassment, nor bullying. W/ 2k years of terroristic history. #CallThemWhatTheyAre!   
-  ------  
+------
 https://i.redd.it/dgotb2482wf91.jpg  
 /r/UncensoredScience  
 /u/Alehti  
@@ -2410,7 +2410,7 @@ https://i.redd.it/dgotb2482wf91.jpg
   
    
 How (-1)² and sqrt(-1) = -1; without the video, here are the index laws of √x; the √ is the inverse square which is equal to 1/[power raised]. If you raised a number to 5, the inverse equals 0.2; and so, the inverse of 5^5 is 5^0.2 : (-1)^2 = (-1^1)^2 = -1^(1*2) = -1^2 = in your calc enter: 0-1^2.   
-  ------  
+------
 https://v.redd.it/03lmncy2puf91  
 /r/UncensoredScience  
 /u/Alehti  
@@ -2418,7 +2418,7 @@ https://v.redd.it/03lmncy2puf91
   
    
 Every time it happens. But maybe the first rabbi really did only appear 500 years ago 🙄   
-  ------  
+------
 https://i.imgur.com/Ydgz1Dy.jpg  
 /r/UncensoredScience  
 /u/Alehti  
@@ -2426,7 +2426,7 @@ https://i.imgur.com/Ydgz1Dy.jpg
   
    
 Posting publicly available content is ABSOLUTELY legal. SOCIAL MEDIA is required to tell you that your public content can be used anywhere for anything else they're liable: Here's why they tell you that you have to block out usernames: because it may expose the fake users trying to divide us.   
-  ------  
+------
 https://www.reddit.com/gallery/wglfmk  
 /r/UncensoredScience  
 /u/Alehti  
@@ -2434,7 +2434,7 @@ https://www.reddit.com/gallery/wglfmk
   
    
 I Spy with my Google Eye More Propaganda/Misleading Bullshit.   
-  ------  
+------
 https://www.reddit.com/gallery/wgjwbf  
 /r/UncensoredScience  
 /u/Alehti  
@@ -2442,7 +2442,7 @@ https://www.reddit.com/gallery/wgjwbf
   
    
 The Illegal Flag of Hawaii, Alabama, New Mexico, Florida, Maryland; and South Carolina [see sticky comment,] these flags all have the Cross of Saint [MANY] minus Maryland that has the Cross of Saint Maurice, and South Carolina. If you cannot fly a Christian flag on State/Fed property... you get it.   
-  ------  
+------
 ![](https://i.redd.it/49cz9q6mwsf91.png?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
@@ -2450,7 +2450,7 @@ The Illegal Flag of Hawaii, Alabama, New Mexico, Florida, Maryland; and South Ca
   
    
 They just don't make statues like they used to. We have clearly lost our morals. A Cathedral Honoring the Archbishop Konrad von Hochstaden.   
-  ------  
+------
 https://www.reddit.com/gallery/wgcs0p  
 /r/UncensoredScience  
 /u/Alehti  
@@ -2458,7 +2458,7 @@ https://www.reddit.com/gallery/wgcs0p
   
    
 I am not going to put the history of the line of Pope's named Pius; but if the next Pope chooses that name... Ban the Vatican from every country and wipe out their communications; and keep that Basilisk sealed within their Basilica.   
-  ------  
+------
 &#x200B;  
   
 ![](https://preview.redd.it/48sog3hvbrf91.png?width=366&format=png&auto=webp&s=a968a62c4018750f578c4156b19e36675b90763e?raw=true)
@@ -2476,7 +2476,7 @@ Spitting poison is a modern term, but it could still be applied to a metaphor of
   
    
 This would have been a 30–40-minute read. Science should be handled the same way instead of papers. This gives you a full visual within seconds. It gets a bit messy when reconciling 2000 years of history.   
-  ------  
+------
 ![](https://i.redd.it/jg79p1dluqf91.png?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
@@ -2484,7 +2484,7 @@ This would have been a 30–40-minute read. Science should be handled the same w
   
    
 The Space Agencies were in charge of operations. They were the ones making the nukes. It fits operation Werwolf to a tee. The allies surely were terrorized.   
-  ------  
+------
 ![](https://i.redd.it/r2wnr0kf4qf91.png?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
@@ -2492,7 +2492,7 @@ The Space Agencies were in charge of operations. They were the ones making the n
   
    
 I Binged Watched John Adams last night solely because of this scene. The only time I have accurately watched a documentary/movie/show that shows the true side of the founding of America.   
-  ------  
+------
 https://v.redd.it/w4pz1nxmzpf91  
 /r/UncensoredScience  
 /u/Alehti  
@@ -2500,7 +2500,7 @@ https://v.redd.it/w4pz1nxmzpf91
   
    
 I had always been concerned about the corruptions in the Royal Society, but after I found out that the British Empire was a split from the Roman Empire in that same way they always split when they realize they're about to fall... Well...   
-  ------  
+------
 ![](https://i.redd.it/e5dvxg68ypf91.png?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
@@ -2508,7 +2508,7 @@ I had always been concerned about the corruptions in the Royal Society, but afte
   
    
 Is this better than writing a book/article/detailed summaries or making a video?   
-  ------  
+------
 References will be attached.  
   
 [I was going to do a detailed analysis of splits. But I do not have the manpower or time of day to complete that task. Instead. I opted to go with the general main points.](![](https://preview.redd.it/8w7ueodx5lf91.png?width=983&format=png&auto=webp&s=1a31eac24bf5a27e1385544d0eadff3827378ccf)?raw=true)
@@ -2522,15 +2522,15 @@ References will be attached.
   
    
 Aryan Physics (NAZI MATHEMATICS)   
-  ------  
-[![](https://de.m.wikipedia.org/wiki/Deutsche_Physik](https://i.imgur.com/peRN5o2.png)?raw=true)
+------
+[![](https://de.m.wikipedia.org/wiki/Deutsche_Physik](https://i.imgur.com/peRN5o2.png?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
 8/3/2022, 3:23:28 PM  
   
    
 Supercut/Curated of Manipulation for Educational Purposes via Star Wars. Current Political Climate | Strange. The Jedi have a Grand Master, Master, Apprentice, a High Council, and are Protectors of the Peace; a lot like the Freemasons. Lucas knows his history.   
-  ------  
+------
 https://vimeo.com/736278286  
 /r/UncensoredScience  
 /u/Alehti  
@@ -2538,7 +2538,7 @@ https://vimeo.com/736278286
   
    
 The more they gas light elementary mathematics, the more content I make. Science is not free from fraud. X⁰ = X¹ not 1. Order of exponents. Second index law. Sir Isaac Newton's book in Latin: Mathematica Principia. The inverse square is X raised to 1 divided by the power raised.   
-  ------  
+------
 https://v.redd.it/vfkwtsnpnjf91  
 /r/UncensoredScience  
 /u/Alehti  
@@ -2546,7 +2546,7 @@ https://v.redd.it/vfkwtsnpnjf91
   
    
 I woke up this morning, groggy, was getting sick of this manipulation of mathematics. We know who this secret enemy is now. And so, since people keep stating that I'm an A.I., here is my lazy attempt to educate others on how we were gaslit into laws that don't exist to appease arische Physik.   
-  ------  
+------
 https://youtu.be/aOUM5ODBa0E  
 /r/UncensoredScience  
 /u/Alehti  
@@ -2554,7 +2554,7 @@ https://youtu.be/aOUM5ODBa0E
   
    
 Rest here, away from the division of our nation and remember... to go to change.org/congressional and mail the petition letter to your local rep (and call their offices.) The secret enemies the founding fathers warned us about is none other than the half remaining part of the First Reich.   
-  ------  
+------
 https://v.redd.it/f29ahaertdf91  
 /r/UncensoredScience  
 /u/Alehti  
@@ -2562,7 +2562,7 @@ https://v.redd.it/f29ahaertdf91
   
    
 There is a New Pi in Town; and it is 3.141592616 | I'll be the first to admit I was wrong on many occasions over this last year about PI. I was so sure it was ~3.1258 but none were absolute such as this; the point I've always tried to make was that we should reevaluate to increase our understanding.   
-  ------  
+------
 https://medium.com/gitresearch/there-is-a-new-pi-in-town-and-it-is-3-141592616-4a1a6784e980?sk=cc4716863589c38245e084e64a0b2e1fi  
 /r/UncensoredScience  
 /u/Alehti  
@@ -2570,7 +2570,7 @@ https://medium.com/gitresearch/there-is-a-new-pi-in-town-and-it-is-3-141592616-4
   
    
 I'm not afraid to share this. I found it extremely funny, and yet I don't agree with it in the slightest. I found it funny because of our past primitive mindset. Women aren't better. Men aren't better. Your character and understanding isn't defined by your race, school, religion, gender, orientation   
-  ------  
+------
 https://i.redd.it/6yny4umgfef91.gif  
 /r/UncensoredScience  
 /u/Alehti  
@@ -2578,7 +2578,7 @@ https://i.redd.it/6yny4umgfef91.gif
   
    
 I cannot do this alone and so: My Petition for Congress to Investigate the FBI, CIA, NSA, HLS, NASA, and Anyone That Refuses to Investigate This Massive Track Record of Sabotaging America. Print it. Mail it. Deliver it if you know your congressional rep.   
-  ------  
+------
 https://www.change.org/congressional  
 /r/UncensoredScience  
 /u/Alehti  
@@ -2586,7 +2586,7 @@ https://www.change.org/congressional
   
    
 Interesting. The Root Word for Fascism is Again Showing Only Propaganda When Searching; it is indeed: Fascia.   
-  ------  
+------
 And one of our oldest most broadly understood definitions appears as number seven. So, many coincidences. What is this definition?  
   
 >A sash worn by certain members of the Catholic and Anglican churches  
@@ -2605,7 +2605,7 @@ But it does not help that the other definitions are:
   
    
 Richard Stallman: Prime Example of Systematic Silencing of Progress in Open Research. I have known about him. He has come up many times in my comment analyses. They call him evil for open source. A 1st Reich sigma-ture. Just started reading his material. NASA also uses SPAM to remove what they wish.   
-  ------  
+------
 https://stallman.org/  
 /r/UncensoredScience  
 /u/Alehti  
@@ -2613,7 +2613,7 @@ https://stallman.org/
   
    
 Do you understand the words that are coming out of your mouth? Church Choirs sing this. There was a video 5 or so years ago of a church singing: "take me to church." It's horrifyingly hilarious and concerning. Oh, Zeus. The song is about intense sex at the start of a relationships that dies.   
-  ------  
+------
 https://i.imgur.com/ElYge8i.jpg  
 /r/UncensoredScience  
 /u/Alehti  
@@ -2621,7 +2621,7 @@ https://i.imgur.com/ElYge8i.jpg
   
    
 Scientific Christmas Songs / Rant / Song: A New Theory of Everything Christmas Song / Blackhole Universal Recycling. / AI Song Writer   
-  ------  
+------
 >***I despise the normalcy of people automatically stating, "what?" or "huh?" when given a multiplex of information in varying directions without attempting to understand the material. If you are not interested. Why read it. Why are you here? It is something I have to work on as well. We all do. Stop reading what you're not interested in. You do not owe my post anything. You do not owe me anything. The past year of reading and analyzing millions of comments. I've learned this. ALL comments are negative. It is as if you were trained to tear ALL others down.***  
   
 # My tone is negative but not toward you.  
@@ -2787,7 +2787,7 @@ You can tell exactly where the line should go, but nothing is in order. However,
   
    
 An introduction to learning something new should be entertaining to give you a gist. It is not stone by stone precise, but really, what is in History when it is written by the victors and obfuscated by the losers. It's strange how I never put the Nazi/Roman parallels together as a young teen.   
-  ------  
+------
 https://www.youtube.com/watch?v=A2IPF4XngRs  
 /r/UncensoredScience  
 /u/Alehti  
@@ -2795,7 +2795,7 @@ https://www.youtube.com/watch?v=A2IPF4XngRs
   
    
 Great Ancient Latin Resources.   
-  ------  
+------
 This helped me a lot. It also helped me understand that it was a sister-language to German, DESPITE what every Latin "educator," says. At this point, you know exactly what I am getting at.  
   
 [https://perseids-publications.github.io/harrington-trees/docs/harrington-latin-grammar-2016.pdf](https://perseids-publications.github.io/harrington-trees/docs/harrington-latin-grammar-2016.pdf)  
@@ -2869,7 +2869,7 @@ Treebank and Tokens:
   
    
 Without Science, History cannot exist; and without History, Science cannot exist. This is the original verse that says gay is a sin. Mas = man. Masculus = young/small form of a man/animal. Femineo is ablative to denote species. Hebrew/Greek = Man "shall not" with male. Illegal to be called men.   
-  ------  
+------
 https://v.redd.it/r77cnfkhqze91  
 /r/UncensoredScience  
 /u/Alehti  
@@ -2877,7 +2877,7 @@ https://v.redd.it/r77cnfkhqze91
   
    
 54s VIDEO: A Meme/Story of My Temporary Win Using Palps Lightning as an Indication of My Internet Speed. To answer: I have 2 ISPs, technically 3: (cell) all three decreased at the same time. Actual speed was not 1Gbps; it was: 122 MB/s which is just under. Why is my upload 4 Mbps? Not DNS. Hardware?   
-  ------  
+------
 https://v.redd.it/8fwsjvp3cye91  
 /r/UncensoredScience  
 /u/Alehti  
@@ -2885,7 +2885,7 @@ https://v.redd.it/8fwsjvp3cye91
   
    
 (ORIGINAL BIBLE)—Religion should not take from you but rather give you enlightenment if you cannot find it. However, since religion has been used mainly for malice and evil, then I believe it's time to discuss the reality of the situation. I can confirm that Di Inferi was the original name for Hell   
-  ------  
+------
 Di Inferi, or "the inverse of the Sky God," aka, "the God's below," was the Roman underworld led by Hades/Pluto, depending on the theology origin. If they can convince their members that “Take me to Church,” was a straight song about a guy wanting to reconnect with the church, that they can convince their followers of anything.  
   
 My method of translating Ancient Latin which did not use any Latin for reference other than the grammatical laws. It actually involved many more ancient languages than this, but this should suffice to summarize.  
@@ -2941,7 +2941,7 @@ But it speaks nothing of Hell to be honest. Di Inferi (the Inferno) as it would 
   
    
 If your war must be fought in the shadows for the sake of eliminating oppression and the betterment of humanity, then the enemy which requires the shadow to survive planted it within somewhere down the line.   
-  ------  
+------
 It could be their respect for religion. It could be their objective for peace and enlightenment. I assure you. Enlightenment doesn't start with a lie.  
   
 Let's start with this: the illuminati do(does?) not exist. That is Nazi and Vatican propaganda.  
@@ -3001,7 +3001,7 @@ Submitting. Almost lost this post. Editing the update soon.
   
    
 Reconciliation of the Average Probability and Death: to summarize: "You design your own hell," and for an even shorter understanding: "An eye for an eye."   
-  ------  
+------
 Canonical link with free access tag appended: [https://andylehti.medium.com/what-happens-after-death-the-law-of-reconciliation-bc63e094ae27?sk=df2d18c49dc5598b146c003252735ee9](https://andylehti.medium.com/what-happens-after-death-the-law-of-reconciliation-bc63e094ae27?sk=df2d18c49dc5598b146c003252735ee9)  
   
 If I were to mix my knowledge of physics, the Universe, and ancient histories; then this is the outcome that fits all religions. You can read the article on clarification on that. I am not about to head into a theological debate. Which is why I am leaving those parts out.  
@@ -3033,7 +3033,7 @@ I just started a new one based on the old by randomizing the order.
   
    
 Just discovered my "draft" tweets that failed to send. My. That's a convenient selection, Twitter.   
-  ------  
+------
 https://i.imgur.com/n02nLJg.jpg  
 /r/UncensoredScience  
 /u/Alehti  
@@ -3041,7 +3041,7 @@ https://i.imgur.com/n02nLJg.jpg
   
    
 The Shortest History Lesson of the Roman Tetrarch-Patriarch-Absolute-Monarchy and the one's that keep interfering with their world domination. The Britannica overthrow of the upper Roman Tetrarch did not last long. Constantine laid the seeds of the Roman Empire in the Catholic Church.   
-  ------  
+------
 https://v.redd.it/1ar4lotx1se91  
 /r/UncensoredScience  
 /u/Alehti  
@@ -3049,7 +3049,7 @@ https://v.redd.it/1ar4lotx1se91
   
    
 Well, that's all you had to say.   
-  ------  
+------
 ![](https://i.redd.it/ct03gb93xre91.png?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
@@ -3057,7 +3057,7 @@ Well, that's all you had to say.
   
    
 One of these is deadlier than the other. Make sure you know which one you're getting.   
-  ------  
+------
 ![](https://i.redd.it/ylyn5xiu5re91.png?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
@@ -3065,7 +3065,7 @@ One of these is deadlier than the other. Make sure you know which one you're get
   
    
 The The True First Reich was the Roman Empire. And if you say it isn't, then the history still says that the first Reich was the Holy Roman Empire. Hitler was absolutely not an atheist.   
-  ------  
+------
 https://i.imgur.com/43FQhuV.jpg  
 /r/UncensoredScience  
 /u/Alehti  
@@ -3073,7 +3073,7 @@ https://i.imgur.com/43FQhuV.jpg
   
    
 The Big List of Coincidences   
-  ------  
+------
 Actually, no. Just this one of JFK looking at a Nazi.  
   
 *Processing img hh53bgx7hqd91...*  
@@ -3191,7 +3191,7 @@ How is it that 90,000 children somehow arrive at the border without adults, and 
   
    
 The people who don't want to admit that the Ca Vatican is responsible for the Nazis, KKK, Pledge of Allegiance via Catholic Knights, Native American and Jewish Holocausts, Crusades, Burning/Torturing others for 1500 yrs, the Confederacy, Lincoln and JFK assassination, Slavery, Racism, Pres. Jackson.   
-  ------  
+------
 https://v.redd.it/zpu1l6hsvpd91  
 /r/UncensoredScience  
 /u/Alehti  
@@ -3199,7 +3199,7 @@ https://v.redd.it/zpu1l6hsvpd91
   
    
 Hitler Has a Stroke Meme | D-Day Footage in Color | Honoring America | Who was the First Reich? | Where do the Migrant Buses Go? | How do 90k Children Get to the Border without Adults? | Blinkless Text - Emotional Version.   
-  ------  
+------
 https://v.redd.it/kllntjodepd91  
 /r/UncensoredScience  
 /u/Alehti  
@@ -3207,7 +3207,7 @@ https://v.redd.it/kllntjodepd91
   
    
 Why was Alan Turing essentially executed by England while a 1000 Nazis were pardoned? Why did NASA and the other Nazi Space Agencies blow up animals when we had thousands of Nazi Warlords to test on? Do I condone conducting research on unwilling humans? No. But the Nazis aren't human.   
-  ------  
+------
 https://i.imgur.com/MsHVSlT.jpg  
 /r/UncensoredScience  
 /u/Alehti  
@@ -3215,7 +3215,7 @@ https://i.imgur.com/MsHVSlT.jpg
   
    
 Just a temporary logo to honor my grandfather who was a Freemason that fought against the Nazis in WWII of whom I share my middle name with: Arthur. You'd think that would be an outlawed name in the Vatican. Sadly, I never knew his brother Merlin. Anyway.....   
-  ------  
+------
 ![](https://i.redd.it/k22jf25izod91.png?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
@@ -3223,7 +3223,7 @@ Just a temporary logo to honor my grandfather who was a Freemason that fought ag
   
    
 p.10: Misinformation: The Rise of Adolf Hitler by Andrew Lehti (full upload by Author) | The Cheap Miniature Set. You know. There is a reason NASA hates it when you say that Stanley Kubrick filmed the moon landing. It had nothing to do with the accusation. Stanley Kubrick was Jewish.   
-  ------  
+------
 https://www.reddit.com/gallery/w7l7r4  
 /r/UncensoredScience  
 /u/Alehti  
@@ -3231,7 +3231,7 @@ https://www.reddit.com/gallery/w7l7r4
   
    
 p.Nein: Misinformation: The Rise of Adolf Hitler by Andrew Lehti (full upload by Author) | It was not lay with another man, it was you shall not have sexual intercourse with a boy that comes from a human woman (essentially: femineo is ablative) | In Greek/Hebrew, it is Man and Male-&gt; (Illegal Title)   
-  ------  
+------
 https://www.reddit.com/gallery/w7kpli  
 /r/UncensoredScience  
 /u/Alehti  
@@ -3239,7 +3239,7 @@ https://www.reddit.com/gallery/w7kpli
   
    
 p.8: Misinformation: The Rise of Adolf Hitler by Andrew Lehti (full upload by Author) | It's hard to summarize a few thousand hours of study along with a few thousand years of history. Indo-Aryan, Vedic-Aryan, Proto-Indo-Aryan, Indo-Iranian, Sanskrit, all share their origin with everyone else.   
-  ------  
+------
 https://cash.app/$PublicNews  
 /r/UncensoredScience  
 /u/Alehti  
@@ -3247,7 +3247,7 @@ https://cash.app/$PublicNews
   
    
 p.7: Misinformation: The Rise of Adolf Hitler by Andrew Lehti (full upload by Author) | 70+ Behavioral Traits Shared by The Vatican and the Nazis. | The Greek Story of Creation. | The Verse the Catholics Changed to Steal 10 Percent of their Follower's Money.   
-  ------  
+------
 https://www.researchgate.net/publication/361944764_Misinformation_The_Rise_of_Adolf_Hitler_and_the_Attack_on_Science_and_Logic_via_HIDTML_How_Falschmeldung_from_the_1930s_is_Happening_Again_Today/link/62d6e27655922e121b7b1212/download  
 /r/UncensoredScience  
 /u/Alehti  
@@ -3255,7 +3255,7 @@ https://www.researchgate.net/publication/361944764_Misinformation_The_Rise_of_Ad
   
    
 p.6: Misinformation: The Rise of Adolf Hitler by Andrew Lehti (full upload by Author) | Question Why NASA keeps saying Global Warming is Caused by CO2 when CO2 makes up 96% of the atmosphere of Mars, and only 0.04% of Earth. CO2 just like the other gases in our atmosphere are neutrally charged.   
-  ------  
+------
 https://cash.app/$PublicNews  
 /r/UncensoredScience  
 /u/Alehti  
@@ -3263,7 +3263,7 @@ https://cash.app/$PublicNews
   
    
 p.5: Misinformation: The Rise of Adolf Hitler by Andrew Lehti (full upload by Author) | Questioning the Established Materials; Aryan Physics; Correction of the Fifth Index Law.   
-  ------  
+------
 https://www.reddit.com/gallery/w7k0vh  
 /r/UncensoredScience  
 /u/Alehti  
@@ -3271,7 +3271,7 @@ https://www.reddit.com/gallery/w7k0vh
   
    
 p.3 Misinformation: Rise of Hitler by Andrew Lehti (Author Upload) | Part 3 | A New Logic of Light and a Fresh Understanding.   
-  ------  
+------
 https://cash.app/$PublicNews  
 /r/UncensoredScience  
 /u/Alehti  
@@ -3279,7 +3279,7 @@ https://cash.app/$PublicNews
   
    
 p.2: Misinformation: The Rise of Adolf Hitler by Andrew Lehti (full upload by Author) | Part 2 | Photo-Electromagnetic Imagery.   
-  ------  
+------
 https://www.reddit.com/gallery/w7jbuj  
 /r/UncensoredScience  
 /u/Alehti  
@@ -3287,7 +3287,7 @@ https://www.reddit.com/gallery/w7jbuj
   
    
 Every time I upload these photos. They fail. Tell me why? Why is it that pretty much only the PEMi photos are rejected?   
-  ------  
+------
 &#x200B;  
   
 ![](https://preview.redd.it/gudcyk149od91.png?width=598&format=png&auto=webp&s=590815de929f45e33d6666269a83c5799d2a84bd?raw=true)
@@ -3301,7 +3301,7 @@ Every time I upload these photos. They fail. Tell me why? Why is it that pretty 
   
    
 Seriously. Every time. You cannot make this up. Any time I have attempted to upload these. I have to do it again 2 to 3 times. Look at how they are spaced.   
-  ------  
+------
 ![](https://i.redd.it/jluvux7o8od91.png?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
@@ -3309,7 +3309,7 @@ Seriously. Every time. You cannot make this up. Any time I have attempted to upl
   
    
 Misinformation: The Rise of Adolf Hitler by Andrew Lehti (full upload by Author) | Part 1   
-  ------  
+------
 https://www.reddit.com/r/UncensoredScience/comments/w7iv79/misinformation_the_rise_of_adolf_hitler_sections/  
 /r/UncensoredScience  
 /u/Alehti  
@@ -3317,7 +3317,7 @@ https://www.reddit.com/r/UncensoredScience/comments/w7iv79/misinformation_the_ri
   
    
 Misinformation: The Rise of Adolf Hitler (Sections) Full Book Upload by Author.   
-  ------  
+------
 Tap here for access on desktop, otherwise, tap the flair to access on most mobile apps.  
 /r/UncensoredScience  
 /u/Alehti  
@@ -3325,7 +3325,7 @@ Tap here for access on desktop, otherwise, tap the flair to access on most mobil
   
    
 George Lucas indeed knows his history. "I will not allow this republic which has stood for 1000 years be split in two." But then is the one that initiated the war on both sides to get control of the Senate and the court. "The Holy Imperial Empire."   
-  ------  
+------
 https://youtu.be/ziOkap3UiLE  
 /r/UncensoredScience  
 /u/Alehti  
@@ -3333,7 +3333,7 @@ https://youtu.be/ziOkap3UiLE
   
    
 George Lucas, "the empire is based on later Imperial America." And also had Storm Troopers. But let's go back. George Lucas is a savant of history. Palestine/Palpatine; Pope Pius/Sidious; Hitler/Vader/Father. The Pope/Sith entice you with eternal life. Sith work in the shadows. I mean. Genius.   
-  ------  
+------
 https://youtu.be/4ESOrF_u1hg  
 /r/UncensoredScience  
 /u/Alehti  
@@ -3341,7 +3341,7 @@ https://youtu.be/4ESOrF_u1hg
   
    
 Yep. Called the Catholic Church of the Vatican Roman Nazi Empire. They're all one and the same. Funny how this is coming up at this moment.   
-  ------  
+------
 ![](https://i.imgur.com/XQ7eSiJ.png?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
@@ -3349,7 +3349,7 @@ Yep. Called the Catholic Church of the Vatican Roman Nazi Empire. They're all on
   
    
 The largest hate group in the world. The largest terrorist organization in the world is non other than the Catholics of the Vatican.   
-  ------  
+------
 ![](https://i.imgur.com/S8KVxWE.png?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
@@ -3357,7 +3357,7 @@ The largest hate group in the world. The largest terrorist organization in the w
   
    
 It's so convenient to blame all other Christians. You should wonder why we've only had two Catholic Presidents.   
-  ------  
+------
 https://i.imgur.com/FNzg3ww.jpg  
 /r/UncensoredScience  
 /u/Alehti  
@@ -3365,7 +3365,7 @@ https://i.imgur.com/FNzg3ww.jpg
   
    
 I did always think it was odd that the statistics for suicide rates of these schools (50,000/100,000) just mysteriously vanished. But hey. That's just the second Reich for you.   
-  ------  
+------
 https://i.imgur.com/xkl2PWF.jpg  
 /r/UncensoredScience  
 /u/Alehti  
@@ -3373,7 +3373,7 @@ https://i.imgur.com/xkl2PWF.jpg
   
    
 Just a reminder that this was 1939. George Washington would be rolling in his grave. The Protestent didn't form the KKK, it was formed by the Catholics. It appears whenever they want to hide, they replace Catholic w/ Protestent or "Christian." The Protestent would not fight against Anti-Catholicism.   
-  ------  
+------
 https://www.reddit.com/gallery/w69yy9  
 /r/UncensoredScience  
 /u/Alehti  
@@ -3381,7 +3381,7 @@ https://www.reddit.com/gallery/w69yy9
   
    
 Social Gaslighting: A Nazi/Catholic Tactic Used for Hundreds of Years | Do You Recall the History of Female Hysteria? That is what gaslighting does to you and they did it to women all of the time. They now do it to those with Bipolar, Schizophrenia, and ADHD.   
-  ------  
+------
 This is what gas lighting is. It is a method to cause insanity. It is the cause of school shootings. Bullying was the cause of the first school shooting and social gaslighting is 10x worse on the psyche. I don't believe anyone actually cares for the people or children of this country because they're too afraid to share this information. Screengrab it. I don't care but people need to understand what social gas lighting is.  
   
 It is a phycological method to invalidate your competition or enemy into madness, it causes a great amount of suicide, and anger.  They do it so that you stop pushing through. If you push through, you'll find their secrets. Luckily, I've seen and known Nazi/Political and Catholic manipulation most of my life.  
@@ -4017,7 +4017,7 @@ Some of these may be shocking. Why? Because would you think, "just don't worry a
   
    
 When they start calling history a Conspiracy Theory. When MarchAgainstNazis deletes every warning about Falschmeldung (Nazi False Information) then Permabans you and the book you made to detect propaganda and commenter interference. When Catholics deny the Holocaust/NA Holocaust and Crusades:   
-  ------  
+------
 https://i.imgur.com/tx5fv3j.jpg  
 /r/UncensoredScience  
 /u/Alehti  
@@ -4025,7 +4025,7 @@ https://i.imgur.com/tx5fv3j.jpg
   
    
 LIST OF TREASONOUS SUBREDDITS removing the history of Nazis, Catholics, Romans, and NASA, while promoting actual misinformation or otherwise known as MANIPULATION and are calling and reporting [factual and logical information]: misinformation. Tag will state the update.   
-  ------  
+------
 The first time I came here I was attempting to create a regex to filter out crypto scam speak. I did. It got me out of my shell though to post embarrassing things. Now I love it. Ha. Well. Not really. I hate it. But there is shit going on that I will not stand for. Humans that want to control other humans disgusts me. It's a primitive inbred trait of desire.  
   
 Here is what I have off the top of my mind that I could remember. But. I am half asleep.  
@@ -4123,7 +4123,7 @@ https://i.redd.it/lop5h2ti7bd91.gif
   
    
 When the Traitors Come to Gaslight the Video then press play and realize there is literally nothing that they will be able to do to be able to gas light it; nor without exposing the accounts that keep accessing my content from Belarus, Faroe Islands, Isle of Man, Montenegro, San Marino, Gibraltar.   
-  ------  
+------
 Before and after the Vatican accessing my content with easily by-passable VPN tunneling: Just kidding. You're connecting to my content. You need to understand how the internet works. These asshats thought they were private going through Switzerland. The entire structure of REDDIT was built using this. Anyway, before and after pressing play:  
   
 https://i.redd.it/7a80umunt9d91.gif  
@@ -4157,7 +4157,7 @@ But yeah. Here is my IP address: 172.58.87.222; I challenge you to get any type 
   
    
 There was so much hate for the Initial Logical Society Logo. I had used this because of mathematics. Nothing to do with the freemasons. I wasn't understanding why so many were calling it evil; until a self-proclaimed Catholic shouted in all caps: "devil worshipping nonsense society."   
-  ------  
+------
 ![](https://i.redd.it/weimtwikm9d91.png?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
@@ -4165,7 +4165,7 @@ There was so much hate for the Initial Logical Society Logo. I had used this bec
   
    
 Random video. But. The video I've been working on is done waiting on for the best time to release when disturbance is the lowest. After 2 days, I cried some. Almost rushed it. I waited. I then added more. 2 days later; still cried. It hasn't failed to make someone bawl. Anyway. Random. NoHidMeaning   
-  ------  
+------
 https://www.youtube.com/watch?v=156k4gKFZUA  
 /r/UncensoredScience  
 /u/Alehti  
@@ -4173,7 +4173,7 @@ https://www.youtube.com/watch?v=156k4gKFZUA
   
    
 This is a NOVEL meme 😂 but really 1000s more where that came from.   
-  ------  
+------
 https://i.imgur.com/qsHaOW4.jpg  
 /r/UncensoredScience  
 /u/Alehti  
@@ -4181,7 +4181,7 @@ https://i.imgur.com/qsHaOW4.jpg
   
    
 Wow. Protestants and Catholics (even on their propaganda websites) sort out WHITE Christians from OTHER COLORED CHRISTIANS. Are you KIDDING me?   
-  ------  
+------
 ![](https://i.redd.it/ppp1oapxg7d91.png?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
@@ -4189,7 +4189,7 @@ Wow. Protestants and Catholics (even on their propaganda websites) sort out WHIT
   
    
 Stop draining the energy from the Earth. Who would solely benefit from us not being able to communicate? 4 parter. Who benefits from death? Economic crashing? Division? Gas lighting into insanity? It's not Nazi Science because this is actual and real.   
-  ------  
+------
 https://www.reddit.com/gallery/w5o9q4  
 /r/UncensoredScience  
 /u/Alehti  
@@ -4197,7 +4197,7 @@ https://www.reddit.com/gallery/w5o9q4
   
    
 2600 YEARS OF MANIPULATION+BS just to appease Zeus. All the death and war because THEY want power. They attempt to exterminate the Jews every 100 years because they ACTUALLY NEED mental health. They literally arent in this reality. They say to you what should be said to them. Their Crux is scheduled   
-  ------  
+------
 https://www.reddit.com/gallery/w5n29r  
 /r/UncensoredScience  
 /u/Alehti  
@@ -4205,7 +4205,7 @@ https://www.reddit.com/gallery/w5n29r
   
    
 ANIMALS you've most likely never heard of. The First: Ouroborus Cataphractus. To expand your mind; you need to be exposed to things that you had no idea about. Here are 12 animals (no snakes or spiders) that I am sure you have never seen before/heard of and 4 you might have:   
-  ------  
+------
 https://www.reddit.com/gallery/w5k5j2  
 /r/UncensoredScience  
 /u/Alehti  
@@ -4213,7 +4213,7 @@ https://www.reddit.com/gallery/w5k5j2
   
    
 There were dozens of Reichs associated with the Roman Empire, Austria, and Germany throughout History. Hitler only recognized the Empires that stood for 1000 yrs. Meaning the First Reich was not the Holy Roman Empire, but the Römisches Reich: Roman Salute/Juno Emblem/Jupiter Swastika/Heil, Caeser.   
-  ------  
+------
 https://v.redd.it/8d7jyfgxlu191  
 /r/UncensoredScience  
 /u/Alehti  
@@ -4221,7 +4221,7 @@ https://v.redd.it/8d7jyfgxlu191
   
    
 Catholics When they Find Out Deus is Zeus who was Dyaus who was first Dyeus (The Sky.)   
-  ------  
+------
 https://v.redd.it/g61jvvbus5d91  
 /r/UncensoredScience  
 /u/Alehti  
@@ -4229,7 +4229,7 @@ https://v.redd.it/g61jvvbus5d91
   
    
 Vedic Aryan Insignia of Dyeus/Dyaus Pitar, and the Indo-Aryan Insignia Zeus/Deus Jupiter.   
-  ------  
+------
 Puzzle of sorting through propaganda and finding the spider sac seeds of the four Roman Empires.  
   
 *Processing video e0vq8iw3i3d91...*  
@@ -4253,7 +4253,7 @@ There is an unsettling amount of ways to make a cross with the two.
   
    
 Revealed: all 27 monkeys held at Nasa research center killed on single day in 2019 | Animals | The Guardian | additional: NASA Administrator states they were essentially worthless because they crippled them. 21 had parkinson's. They were experimenting on dopamine levels by the sounds of it.   
-  ------  
+------
 https://www.theguardian.com/world/2020/dec/22/nasa-killed-all-monkeys-on-single-day  
 /r/UncensoredScience  
 /u/Alehti  
@@ -4261,7 +4261,7 @@ https://www.theguardian.com/world/2020/dec/22/nasa-killed-all-monkeys-on-single-
   
    
 Uploading a video soon. IT involves the FOUR Roman SpiderSac Empires that have come back to cause nearly every genocide/oppressive war. In the meme time, imagination is important for discovery and cognitive processing. Sync music up to repetitive patterns and it will help you think better.   
-  ------  
+------
 https://v.redd.it/4jc5d7vzwzc91  
 /r/UncensoredScience  
 /u/Alehti  
@@ -4269,7 +4269,7 @@ https://v.redd.it/4jc5d7vzwzc91
   
    
 The Universal Law of Reconciliation of the Average Probability: choose a number and an option pair.   
-  ------  
+------
 In this experiment. I am going to test if a paradox can break the universal law. Never have I been able to except for one time. It however failed to work again the day after, and then my CPU hot a few burn marks on it so I got a new set. One could say it is cheating, but you are the only one able to influence the choice so technically not really.  
   
 [View Poll](https://www.reddit.com/poll/w4kicd)  
@@ -4279,7 +4279,7 @@ In this experiment. I am going to test if a paradox can break the universal law.
   
    
 I told you, stop being nice to the ones that tell you that you have to be nice but then are ones that are total morans. There are huge issues with extracting our magnetic power from the ball we float on. Sure. May not seem like a lot. BUT YOU DON'T MESS WITH THE BALANCE OF THE BALL YOU FLOAT ON.   
-  ------  
+------
 https://www.reddit.com/gallery/w4iimh  
 /r/UncensoredScience  
 /u/Alehti  
@@ -4287,7 +4287,7 @@ https://www.reddit.com/gallery/w4iimh
   
    
 ESTIMATES OF THE NUMBER KILLED BY THE PAPACY IN THE MIDDLE AGES AND LATER | David A. Plaisted © 2006   
-  ------  
+------
 http://static1.1.sqspcdn.com/static/f/827989/15116787/1321289366180/50+million+protestants+killed.pdf  
 /r/UncensoredScience  
 /u/Alehti  
@@ -4295,7 +4295,7 @@ http://static1.1.sqspcdn.com/static/f/827989/15116787/1321289366180/50+million+p
   
    
 There are THREE groups you're not allowed to talk about and their histories are deeply, deeply connected from Three of the Pope Pius, Drexler, to von Braun. They are: Catholics, Nazis, NASA. *COUGH* [[HEY! And I'm not talking about any good people within the church. BUT stop protecting pedophiles.]]   
-  ------  
+------
 https://i.imgur.com/UK99uFa.jpg  
 /r/UncensoredScience  
 /u/Alehti  
@@ -4303,7 +4303,7 @@ https://i.imgur.com/UK99uFa.jpg
   
    
 The Speed of Light Article Friend Links.   
-  ------  
+------
 It appears that many REDDIT apps / open-source code etc. removes any sort of URI and so when you click onto a link/friend link, it removes the free access tag. Here is my curation of my understanding of light from the past few months, and you'll see it change a bit here and there as the understanding becomes greater.  
   
 Newest first, oldest last::  
@@ -4367,7 +4367,7 @@ You'll have to read about my correction to the index laws to understand that x\^
   
    
 600ms max. Don't waste my time. If I have to open a GD app just to scan it, then I don't want it. Google pushes QR like mad but does nothing. Here's how it should be: point cam at QR, press button, API opens it; PWA perhaps. ABSOLUTELY no "install this" to view. Btn needs to get qr from screen too.   
-  ------  
+------
 https://i.imgur.com/FZZWjrw.jpg  
 /r/UncensoredScience  
 /u/Alehti  
@@ -4375,7 +4375,7 @@ https://i.imgur.com/FZZWjrw.jpg
   
    
 Got +1000 likes on one. All except one and the FBI crosspost have positive upvotes. ANYWAY. Here is the full PDF to my book. MISINFORMATION: THE RISE OF ADOLF HITLER. YOU will be confused. The book puts you into each individual logical center and emotion. It will break your "safe from harm" reality.   
-  ------  
+------
 https://www.researchgate.net/publication/361944764_Misinformation_The_Rise_of_Adolf_Hitler_and_the_Attack_on_Science_and_Logic_via_HIDTML_How_Falschmeldung_from_the_1930s_is_Happening_Again_Today  
 /r/UncensoredScience  
 /u/Alehti  
@@ -4383,7 +4383,7 @@ https://www.researchgate.net/publication/361944764_Misinformation_The_Rise_of_Ad
   
    
 I present to you, the first MEME PAPER since every component within desktop was mysteriously fried despite advance protection. DOI reference: 10.5281.zenodo.6566630   
-  ------  
+------
 https://i.imgur.com/Cw9YvlM.jpg  
 /r/UncensoredScience  
 /u/Alehti  
@@ -4391,7 +4391,7 @@ https://i.imgur.com/Cw9YvlM.jpg
   
    
 Because apparently history is a conspiracy theory now. I have a Q about the Q gospel written by Anonymous.   
-  ------  
+------
 ![](https://i.imgur.com/O5JtOGj.png?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
@@ -4399,7 +4399,7 @@ Because apparently history is a conspiracy theory now. I have a Q about the Q go
   
    
 Scientific Method Hijacked   
-  ------  
+------
 I,  and many other researchers, and found that the scientific method is  getting far out of hand. One person is allowed to decide what is true  and false; and if they decline it, they can be anonymous.  
   
 There  are researchers appearing out of the woodwork with zero method of  verification other than a long list of details that cannot be verified  along with a profile picture from a "not a real person," A.I. and a  Chinese or Greek name, and they always appear to work at either NASA or  CERN.  
@@ -4415,7 +4415,7 @@ We have been stopped at every angle to create a Universal Open Source Society.
   
    
 Here are the names of the articles I wrote. If you want a friend, link to one. Just comment it. Otherwise, most should be within the catalog of links I put here.   
-  ------  
+------
 ![](https://i.redd.it/zugm1to4nac91.png?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
@@ -4423,7 +4423,7 @@ Here are the names of the articles I wrote. If you want a friend, link to one. J
   
    
 GamePolicy: comment must contain a GIF from Space Balls. Only top level comments within your own sub or this one. Solve these and show your work! You must solve both equations on both images for a total of four. Contest mode enabled on this sub.   
-  ------  
+------
 https://www.reddit.com/gallery/w1ijle  
 /r/UncensoredScience  
 /u/Alehti  
@@ -4431,7 +4431,7 @@ https://www.reddit.com/gallery/w1ijle
   
    
 The Gist of the Book that I just sent to an IA   
-  ------  
+------
 I found that America has been infiltrated with Aryan Physics. Which is Quantum Physics. The entire mathematics structure is backwards. Every person that attempted to falsify the equation for time dilation did a horseshit job. I corrected and corrected mathematics. I have been attacked since. Everything I did accidentally stepped on Nazi toes.  
   
 NASA has photos of astronauts but in their military photos; they have blue eyes. In their NASA photos, they do not.  
@@ -4467,7 +4467,7 @@ Q Anon. Q Gospel. Written by Anonymous.
   
    
 The post ABSOLUTELY followed their rules. Clickbait? There's no LINK. IT'S NOT a crosspost. There was no prompt to watch the video nor did it imply a prompt for a video. Their behavior is against Reddit TOS. But their treason is will be thrown down in a few. I'm not going to lie. I hate Nazis.   
-  ------  
+------
 https://i.imgur.com/2yxUZtQ.jpg  
 /r/UncensoredScience  
 /u/Alehti  
@@ -4475,7 +4475,7 @@ https://i.imgur.com/2yxUZtQ.jpg
   
    
 How many coincidences is applicable to determine guilt? 2. They have about 800 now. And that's not an over exaggeration. Why change your astronaut's eye color? No way could I extract the blue out within common means.   
-  ------  
+------
 ![](https://i.imgur.com/6erlffG.png?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
@@ -4483,7 +4483,7 @@ How many coincidences is applicable to determine guilt? 2. They have about 800 n
   
    
 America? Yep. A lot of it sucked, and still does, and all of that history has to do with one group, and we fought part of their group in WWII. They're within our country manipulating, but they do not have total control. They are afraid of our checks and balance. We fight oppression, not each other.   
-  ------  
+------
 https://v.redd.it/6soruabnm2c91  
 /r/UncensoredScience  
 /u/Alehti  
@@ -4491,7 +4491,7 @@ https://v.redd.it/6soruabnm2c91
   
    
 I guess my other book needs supplemental information to understand. I was going to publish this last year, but didn't. Further, I wanted to share with you an intermittent section.   
-  ------  
+------
 ![](https://i.redd.it/omh2jwkwg2c91.png?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
@@ -4499,7 +4499,7 @@ I guess my other book needs supplemental information to understand. I was going 
   
    
 Creative Minds are Open Minds According to Many Studies   
-  ------  
+------
  Well;  it all depends on how open-minded you are to accept new concepts and  history. Many studies have proven that creative minds are open minds;  those that do not have creative minds believe if new information is  different from their first learned knowledge, then they panic and get  angry because they don't know how to process new information. A  calculator can never process something other than what it was programmed  to do; a programmer can interpret, design, function, process, and  redefine. A calculator cannot.  
   
 In  order to merge two images in your head; you need to be creative. In  order to imagine new worlds and concepts, you need to have imagination;  there are some people that do not have images within their mind. There  are many people that do not have a voice within their head. I often  wonder what that is like. How does one think or read without a voice  within their head? Very fascinating studies.  
@@ -4565,7 +4565,7 @@ Proof the Earth is a Dual Negative Monopole. [https://medium.com/gitresearch/pro
   
    
 Reupload but Vertically + Perspective of Blue Hue: The Andromeda Black Hole via PEMi Forensic Imagery which reveals the captured layer of color that we cannot see but is brought into focus when the color that we can see is degraded away. Digital images have far more information than you realize.   
-  ------  
+------
 ![](https://i.redd.it/9r4xyubxl0c91.png?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
@@ -4573,7 +4573,7 @@ Reupload but Vertically + Perspective of Blue Hue: The Andromeda Black Hole via 
   
    
 The Comparison of my Andromeda Extractions: First = 5MB Raw Image Crop of Andromeda's Center; Second = 250MB no crop; Third = ~5GB Raw Image no crop of Andromeda before processing. The color spectrum has layers we cannot see; just as cameras capture visible light, it captures non-visible as well.   
-  ------  
+------
 ![](https://i.redd.it/4c8641sic0c91.png?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
@@ -4581,7 +4581,7 @@ The Comparison of my Andromeda Extractions: First = 5MB Raw Image Crop of Androm
   
    
 I cannot stress this enough: to the people that state: "you can't extract black holes from a photograph." What do you suppose a discovery is? Do you think we've discovered everything? Electromagnetic waves are color, right? There is a huge spectrum captured that we cannot see.   
-  ------  
+------
 ![](https://i.redd.it/bdcr65v4kzb91.png?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
@@ -4589,7 +4589,7 @@ I cannot stress this enough: to the people that state: "you can't extract black 
   
    
 The first unified logo for society and science that I made years ago when I wrote a concept for the Omnicracy (governed by all) which is now the Public Resource License but only pertains to science and research; which is to be for all; essentially, universal open source of all concepts and research.   
-  ------  
+------
 https://i.redd.it/zk612y1dryb91.jpg  
 /r/UncensoredScience  
 /u/Alehti  
@@ -4597,7 +4597,7 @@ https://i.redd.it/zk612y1dryb91.jpg
   
    
 I love the term used, "taken from their country for employment," now that is excellent marketing.   
-  ------  
+------
 https://www.reddit.com/gallery/w0jvcc  
 /r/UncensoredScience  
 /u/Alehti  
@@ -4605,7 +4605,7 @@ https://www.reddit.com/gallery/w0jvcc
   
    
 I love the line: "taken from their country for employment."   
-  ------  
+------
 https://i.imgur.com/8KoNpLe.jpg  
 /r/UncensoredScience  
 /u/Alehti  
@@ -4613,7 +4613,7 @@ https://i.imgur.com/8KoNpLe.jpg
   
    
 Way to go Bing for restoring all the Public Resource License Links and gave it a card.   
-  ------  
+------
 &#x200B;  
   
 [Google needs to step up their game.](![](https://preview.redd.it/qlp9inogcxb91.png?width=670&format=png&auto=webp&s=140db01e32fcd0cb093a4a61a4b948125c4c4d67)?raw=true)
@@ -4686,7 +4686,7 @@ Way to go Bing for restoring all the Public Resource License Links and gave it a
   
    
 A list of removed posts (it has gone down considerably within the past 2 weeks) This does not show posts that are still active. Red dot means I want you to READ everything about the removed post; green means to take note of the removed post. I did not mark any to be noted if auto modded.   
-  ------  
+------
 &#x200B;  
   
 [In case you can't see the original caption when cross posting.](![](https://preview.redd.it/ovsaknm42xb91.png?width=638&format=png&auto=webp&s=2a5b32dfe2bc2726fc9c0ddd36ecce62cb323063)?raw=true)
@@ -4702,7 +4702,7 @@ https://preview.redd.it/031xrux12xb91.jpg?width=1740&format=pjpg&auto=webp&s=0a8
   
    
 Hypothetical / Theoretical | Hypothesis / Theory | Hypothetically / Theoretically   
-  ------  
+------
 Nothing bothers me more than when "famous" scientists use the term: "theoretically possible," when they are referring to a hypothetical situation; and especially when referring to hypothetical tech/mathematics.  
   
 The second thing to bother me is when people say: "it's only a theory," a theory is the utmost truth to our highest understanding;  
@@ -4714,7 +4714,7 @@ However, given that one anonymous person within the scientific method is allowed
   
    
 Exponential Processing Hypothesis (2096430GHz Transistor)   
-  ------  
+------
 While this is nothing but an idea of the past few years; in a hypothetical (stop saying theoretical; even though I use it in cases where I don't feel like explaining this) situation: a 2096430GHz (2096.43THz) is achievable through the use of traditional logic processors to prepare the instructions which are then sent to a dual (possible) single transistor that I have been attempting to hypothesize that has 32 logic operations (16 pairs.) The reason why there would only be one or two is because the tech that exists to make it is a bit large and radioactive.  
   
  Open Research— ℗ Public Resource License: The Logical Society.  
@@ -4724,7 +4724,7 @@ While this is nothing but an idea of the past few years; in a hypothetical (stop
   
    
 A few years back, I was listening to this song and my friend said to me, "wow, are you depressed from a guy or something?" I had listened to the song without ever once hearing the lyrics until I watched the video; and so I explained the two meanings of the song to her.... "Blue Eyed and Foolish."   
-  ------  
+------
 https://www.youtube.com/watch?v=sJXZ9Dok7u8  
 /r/UncensoredScience  
 /u/Alehti  
@@ -4732,7 +4732,7 @@ https://www.youtube.com/watch?v=sJXZ9Dok7u8
   
    
 Misinformation: The Rise of Adolf Hitler and the Attack on Science and Logic via HIDTML   
-  ------  
+------
 https://doi.org/10.13140/RG.2.2.29823.48802  
 /r/UncensoredScience  
 /u/Alehti  
@@ -4740,7 +4740,7 @@ https://doi.org/10.13140/RG.2.2.29823.48802
   
    
 20 minutes after posting the book compared to hours later after being censored by Reddit. You don't need a comparison. They're the same stats.   
-  ------  
+------
 ![](https://i.redd.it/2pnmuavbavb91.png?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
@@ -4748,7 +4748,7 @@ https://doi.org/10.13140/RG.2.2.29823.48802
   
    
 If I can sum up my message to society.   
-  ------  
+------
 https://i.imgur.com/1Y0NjqG.jpg  
 /r/UncensoredScience  
 /u/Alehti  
@@ -4756,7 +4756,7 @@ https://i.imgur.com/1Y0NjqG.jpg
   
    
 You know; I am going to selfishly self-promote my book because it's free right now and it's about how misinformation is a Nazi tactic and how Nazis have been within our country for years destroying us from the inside. But please; only Nazis have issues with that. Freedom is more valuable than money.   
-  ------  
+------
 https://www.reddit.com/gallery/w04by6  
 /r/UncensoredScience  
 /u/Alehti  
@@ -4764,7 +4764,7 @@ https://www.reddit.com/gallery/w04by6
   
    
 You shouldn't believe memes, but you should be able to do your own research after learning about something from a meme (hey, that's also pushed as a negative: do your own research; It's like they really want you dumb) also, use Searx.Space for worldwide uncensored searching. Does NOT mean good forvr   
-  ------  
+------
 ![](https://i.redd.it/mkhanz4fgtb91.png?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
@@ -4772,7 +4772,7 @@ You shouldn't believe memes, but you should be able to do your own research afte
   
    
 And don't even get me started on HRE (no, not Holy Rome Empire; but yes, that too,) how the hell do you overthrow a monarch but still have the monarch control/have power/influence/have status over most of the assets. You know the Royal Society authored/controls the corrupt biased Scientific Method?   
-  ------  
+------
 https://v.redd.it/eemyln9t1tb91  
 /r/UncensoredScience  
 /u/Alehti  
@@ -4780,7 +4780,7 @@ https://v.redd.it/eemyln9t1tb91
   
    
 If you make the population afraid of their own government, they'll never report actual crimes that the FBI or CIA. Why are all whistleblowers white? Do I have to consider thinking about calling bullshit on Snowden?   
-  ------  
+------
 The U.S. government can't say anything if it is true or not and that works to the suspected terrorism's advantage.  
   
 I am not saying that all of them are white. Just the ones you've heard about.  
@@ -4794,7 +4794,7 @@ There is also the manipulative side of this. In order to fight back, you must al
   
    
 Lol. The inbreeds attempting to discredit by association. It's becoming verbatim at this point.   
-  ------  
+------
 &#x200B;  
   
 ![](https://preview.redd.it/9o0f7hln5ob91.png?width=728&format=png&auto=webp&s=5e42f2a22e3f74f589f124eb03e22659cab2bf5c?raw=true)
@@ -4804,7 +4804,7 @@ Lol. The inbreeds attempting to discredit by association. It's becoming verbatim
   
    
 Talked with Amazon about the ads. Just kidding. They approved it w/o issue. Reddit, Twitter, Google, Facebook had "issues," or even cancelled my ad accounts. Like I said, it's weird that Amazon has been the company to help and keep watch against Nazis. Advertise in Germany?   
-  ------  
+------
 ![](https://i.redd.it/5x21dhh80ob91.png?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
@@ -4812,7 +4812,7 @@ Talked with Amazon about the ads. Just kidding. They approved it w/o issue. Redd
   
    
 How a 12,578,616 Gbit/s Data Transfer Speed can be Attained, and How UCF May Have Paved the Way for it via the Professor from the University of Central Florida: Zenghu Chang. | Data Ports and Light Processing.   
-  ------  
+------
 https://andylehti.medium.com/how-a-12-578-616-gbit-s-data-transfer-speed-can-be-attained-and-how-ucf-may-have-paved-the-way-for-fc2e8f58b408?sk=5c2e00af09218811d2c2f17d583ee1e7  
 /r/UncensoredScience  
 /u/Alehti  
@@ -4820,7 +4820,7 @@ https://andylehti.medium.com/how-a-12-578-616-gbit-s-data-transfer-speed-can-be-
   
    
 How I Disproved the Moon Landing: When I Meant to Disprove Conspiracy Theorists | Was briefly number #1 in World War II History, History of Physics, and History of Astronomy. Number 4,718. When my links were pulled down it was at 20,000. I guess we're in good shape. FREE only for 42 more HOURS.   
-  ------  
+------
 https://www.amazon.com/dp/B0B6CQWL56  
 /r/UncensoredScience  
 /u/Alehti  
@@ -4828,7 +4828,7 @@ https://www.amazon.com/dp/B0B6CQWL56
   
    
 I may say negative things about the Catholics. But. I do truly admire Francis. It could be an act. Although. I feel he is more of a hostage. He has on several occasions uttered the real translations of the bible, and every time the Vatican played the "ran into the door" routine for him in panic.   
-  ------  
+------
 ![](https://i.redd.it/08k7c7tunfb91.png?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
@@ -4836,7 +4836,7 @@ I may say negative things about the Catholics. But. I do truly admire Francis. I
   
    
 When I say I catalog things? I usually mean within my memory. I swear I had two encounters with this guy because I recall him talking about some sort of moon beer or drinking beer in the moonlight. Whatever. I just wasted my time. Ha. But seems legit? Weird he appeared twice on different acts; jdbsb   
-  ------  
+------
 ![](https://i.redd.it/cpt41mvg2fb91.png?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
@@ -4844,7 +4844,7 @@ When I say I catalog things? I usually mean within my memory. I swear I had two 
   
    
 How I Disproved the Moon Landing: When I Meant to Disprove Conspiracy Theorists: It is simple to refute and disprove the moon landing. It's difficult to discover why you can't—Free Now 13th to 15th; as well as the Ides of Every Month (15th for simplicity) 8000 hours + 2000 hours of study simplified.   
-  ------  
+------
 If questioning authority or notable agencies of science is crackpot drivel; then I am one proud crackpotter. Whatever you want that to mean. The point of the book has really nothing to do with the moon landing. It is merely the catalyst.  
   
 It is simple to refute and disprove the moon landing. It's difficult to discover why you can't.  
@@ -4872,7 +4872,7 @@ If you want a preview; this would be me to a bot:
   
    
 Mind you; I would have never rabbit trailed down this path had this society not been full of calculators. But that's just reconciliation. I merely stated light was instantaneous and that it needed to be looked into.   
-  ------  
+------
 >^(I will cryptically/non say to the Reddit admins. I am proud of the work they've done to cut some of the crap from these bots/upvote bots. However, you now are going to have to deal with the downside of being able to stop any post from climbing by doing the positive operation. Perhaps just invalidate those upvotes/downvotes so that it doesn't count in the algorithm but is unknown to others. Clearly a link must be followed to a post to upvote/downvote in reasonable time. There is no way a log does not see what users are bots upvoting/downvoting. As for the NSFW communities. I really hope you are not wasting time there. Let them manipulate their porn. No one cares. It's a fair battlefield as that is naturally what the field brings. However, science, history, etc. those are communities that need to be monitored. Again. Don't waste resources that can decide the fate of our world vs. the fate of the image someone faps to.)  
 /r/UncensoredScience  
 /u/Alehti  
@@ -4880,7 +4880,7 @@ Mind you; I would have never rabbit trailed down this path had this society not 
   
    
 There are calculators that cannot redefine for themselves and will never accomplish anything but to be an assistant to others. Then there are programmers that can redefine and understand. Be a programmer. The world is doomed when all are calculators whereas the world would thrive if all programmed.   
-  ------  
+------
 A.I. honestly can have an entertaining "imagination," of logic built on the patterns of other works. First:  
   
 "My textbook says,"  
@@ -4950,7 +4950,7 @@ Andrew Lehti that aims to uncover mathematical discrepancies in the fabric of re
   
    
 At long last, I deciphered the Gammadion! (Swazzi) | A remarkably bad post for remarkably bad people within history; and a need/human desire to make a classic cringe post.   
-  ------  
+------
 # Well. I guess you deserve a manic post.  
   
 What are you looking at? Ich bin uber cereal. But all of this nonsense just dropped into my lap around the same time.   
@@ -5048,7 +5048,7 @@ Just a quick test: you do see it still, right?
   
    
 I must be pretty dang lucky to get the speed of light in meters per second when solving the true time dilation calculation. Tell me again how mathematics hasn't changed?   
-  ------  
+------
 &#x200B;  
   
 *Processing img tni05a9324b91...*  
@@ -5074,7 +5074,7 @@ But you remember:
   
    
 And Facebook does it again. Lol.   
-  ------  
+------
 ![](https://i.imgur.com/N0cVpDH.png?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
@@ -5082,7 +5082,7 @@ And Facebook does it again. Lol.
   
    
 Everyone, "I'll just ignore that."   
-  ------  
+------
 https://i.imgur.com/b14esKg.jpg  
 /r/UncensoredScience  
 /u/Alehti  
@@ -5090,7 +5090,7 @@ https://i.imgur.com/b14esKg.jpg
   
    
 LET ME HELP YOU BY ADJUSTING YOU TO REALITY: A PERSPECTIVE JOURNEY: — I: DOPAMINE II: LUCIFER AND AGNI III: ANCIENT LATIN IV: THERE ARE TWENTY-SIX UNFORGIVABLE SINS V: PLUTO IS THE LARGEST PLANET VI: ARYAN PHYSICS/NAZI MATH VII: MEMES VIII: INFLATION/POPULATION SOLUTION.   
-  ------  
+------
 # GOD FORBID IT IF YOU QUESTION THE ESTABLISHED: HOW STELLA PUT YOU BACK IN LINE.  
   
 THE LADY IN GREEN: This is you; this is what society has conditioned 99 percent of you to be, despite your denial. The first step to not being this person below is admitting that the obvious, and that is that you were put through this systematic hell so that someone else could get their jolly's rocking over controlling you:  
@@ -5274,7 +5274,7 @@ Oh. It doesn't matter, they're going to kill us anyway because they have no idea
   
    
 RULE 1: NOTHING IN MATHEMATICS IS ATTACHED   
-  ------  
+------
 # RULE 1: NOTHING IN MATHEMATICS IS ATTACHED  
   
 &#x200B;  
@@ -5356,7 +5356,7 @@ https://i.redd.it/wqqp898gr5a91.gif
   
    
 Posted the Archived Link and so the Nazis Removed it, :) They don't like it because it disproves their Aryan Physics. They have tried to make this fraudulent case against "Jewish" Physics aka MODERN PHYSICS for 90 years.   
-  ------  
+------
 https://www.reddit.com/gallery/vtjqwi  
 /r/UncensoredScience  
 /u/Alehti  
@@ -5364,7 +5364,7 @@ https://www.reddit.com/gallery/vtjqwi
   
    
 You should be mad at the fact that these (most likely old bitties) people gaslight you about mathematics. Here is the only inept way they have performed mathematics for hundreds of years. Here is a way that I perform mathematics because that is what programmers do: we optimize, correct, and refine.   
-  ------  
+------
 ![](https://i.redd.it/vyr7krs1k5a91.png?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
@@ -5372,7 +5372,7 @@ You should be mad at the fact that these (most likely old bitties) people gaslig
   
    
 Introducing the Scale of Isaac Newton.   
-  ------  
+------
 ![](https://i.redd.it/v7z3i06qh1a91.png?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
@@ -5380,7 +5380,7 @@ Introducing the Scale of Isaac Newton.
   
    
 Current Faith in Humanity (ongoing) | Data   
-  ------  
+------
 &#x200B;  
   
 https://i.redd.it/zkprax6c7u991.gif  
@@ -5428,7 +5428,7 @@ Here are a few that mind sound familiar in our society today:
   
    
 Keep an eye on this. I bet a bot will "remove" it... Twelve years ago 110k-individual-leaders-accused and nothing happened, and all I have to say to the governments around the world:   
-  ------  
+------
 https://i.redd.it/w477bug3nt991.gif  
 /r/UncensoredScience  
 /u/Alehti  
@@ -5436,7 +5436,7 @@ https://i.redd.it/w477bug3nt991.gif
   
    
 My illustration of how I once thought the universe to recycle/restart, however, I've completely abandoned this idea for: we don't know and will never know/be completely sure of, so I'm not going to continue wasting my life on this useless problem that doesn't help humanity.   
-  ------  
+------
 https://i.redd.it/trn9hslmxr991.gif  
 /r/UncensoredScience  
 /u/Alehti  
@@ -5444,7 +5444,7 @@ https://i.redd.it/trn9hslmxr991.gif
   
    
 Quantum Physics and the Third Reich (Aryan Physics) | And just like anything that I post, there are two to four members waiting to view it immediately, only to back out to register one second to kill it in the algorithm. No worries. :)   
-  ------  
+------
 https://medium.com/gitresearch/aryan-physics-6e4023a8898d?sk=e39b57db99778b458b36d9db3c79f96f  
 /r/UncensoredScience  
 /u/Alehti  
@@ -5452,7 +5452,7 @@ https://medium.com/gitresearch/aryan-physics-6e4023a8898d?sk=e39b57db99778b458b3
   
    
 The absolute irony of this Anagram. It's a good thing numbers and anagrams mean nothing and that endless possibilities are bound to happen especially given a name filled with the most common letters.   
-  ------  
+------
 https://i.imgur.com/YmYGd7h.jpg  
 /r/UncensoredScience  
 /u/Alehti  
@@ -5460,7 +5460,7 @@ https://i.imgur.com/YmYGd7h.jpg
   
    
 It was only made popular because it opposed "Jewish Physics" aka Modern Physics.   
-  ------  
+------
 https://i.imgur.com/w7owGHB.jpg  
 /r/UncensoredScience  
 /u/Alehti  
@@ -5468,7 +5468,7 @@ https://i.imgur.com/w7owGHB.jpg
   
    
 I cannot wait for the Nazis to come after this. Jewish Physics by the way is Modern Physics. Here is the abridged history. https://en.wikipedia.org/wiki/Deutsche_Physik ---- Nazis really were good at nothing. From my upcoming book to crush these falsehoods. But it all adds up when put into one book.   
-  ------  
+------
 ![](https://i.redd.it/tjk9hi98vl991.png?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
@@ -5476,7 +5476,7 @@ I cannot wait for the Nazis to come after this. Jewish Physics by the way is Mod
   
    
 I just love how "Googling" something is enough to refute new evidence. Because, that's how you refute new evidence is with old evidence.   
-  ------  
+------
 ![](https://i.redd.it/uwpcyrdb7i991.png?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
@@ -5484,7 +5484,7 @@ I just love how "Googling" something is enough to refute new evidence. Because, 
   
    
 Have you ever driven yourself mad to the point that you just try the craziest thing imaginable? For 1.5 years I have tried to make this "thing," boost the transmission and receptor for signal without electricity. I decided to make this, and it worked. The composition of materials had not changed.   
-  ------  
+------
 ![](https://i.redd.it/85kcz6zogi991.png?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
@@ -5492,7 +5492,7 @@ Have you ever driven yourself mad to the point that you just try the craziest th
   
    
 Imagine how hard it would be to spy on bots.   
-  ------  
+------
 https://i.imgur.com/FMabD8Z.jpg  
 /r/UncensoredScience  
 /u/Alehti  
@@ -5500,7 +5500,7 @@ https://i.imgur.com/FMabD8Z.jpg
   
    
 Misinformation is the step after "fake news." Make sure to grab the pitchforks if they try this shit. Google isn't displaying the result found here for me. I don't think it is "Google" but there are employees within every social media/organization most likely from NASA which need investigation🙋 rn?   
-  ------  
+------
 &#x200B;  
   
 [![](https:\/\/de.wikipedia.org\/wiki\/Falschmeldung](https://preview.redd.it/arzw88p9b5991.png?width=511&format=png&auto=webp&s=b2089b4916636e142c95e4e9ecb7f72a20983c4b)?raw=true)
@@ -5512,7 +5512,7 @@ Misinformation is the step after "fake news." Make sure to grab the pitchforks i
   
    
 I recommend that you use Searx, and Make Sure it is an Instance You Trust: I use Searx.be and Paulgo.io; it is not tampered with and it searches across many engines to form congruent results. Observe Google earlier. It "redirected" director to administrator; checked hours later: it was corrected.   
-  ------  
+------
 https://www.reddit.com/gallery/vppouy  
 /r/UncensoredScience  
 /u/Alehti  
@@ -5520,7 +5520,7 @@ https://www.reddit.com/gallery/vppouy
   
    
 NASA Hides Kurt. Again.   
-  ------  
+------
 ![](https://i.redd.it/k84j26b723991.png?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
@@ -5528,7 +5528,7 @@ NASA Hides Kurt. Again.
   
    
 The Cause of Inflation: The Solution to Prevent the Collapse of Society | You have to wonder why this is attacked so much. It is the obvious answer. It is the only answer. You're going to do the same thing the last 14 crashes and expect it to work? No.   
-  ------  
+------
 https://medium.com/gitresearch/the-cause-of-inflation-the-solution-to-prevent-the-collapse-of-society-611c88b92256?sk=67b286806b92d1edf862ce4b3b570505  
 /r/UncensoredScience  
 /u/Alehti  
@@ -5536,7 +5536,7 @@ https://medium.com/gitresearch/the-cause-of-inflation-the-solution-to-prevent-th
   
    
 How to Scrape Twitter Comments (TWINT - Twitter Intelligence Tool) to See What Narrative the Bots are Pushing (The Current Thing.)   
-  ------  
+------
 Go to [research.google.com/colaboratory/](https://research.google.com/colaboratory/)  
   
 [Paste the below here](![](https://preview.redd.it/xq3yp1y3st891.png?width=454&format=png&auto=webp&s=558871d177f5585f10f7784aee4f9551ee4f6353)?raw=true)
@@ -5603,7 +5603,7 @@ On the side bar, you can save your CSV or connect your google drive to add it th
   
    
 The Summary of my ~120 Day Investigation: where is all of the antisemitism coming from? How the United States of America and all other Countries that took Nazi S.S. Agents into their Research Facilities are Being Destroyed From Within.   
-  ------  
+------
 &#x200B;  
   
 *Processing img 3vhckgyr8p891...*  
@@ -5689,7 +5689,7 @@ So. I hope you see where I am coming from.
   
    
 Photo Electromagnetic Imagery Reveals Unseen Details (New Forensic Image Technique)   
-  ------  
+------
 https://youtu.be/V0uLVF1dWj0  
 /r/UncensoredScience  
 /u/Alehti  
@@ -5697,7 +5697,7 @@ https://youtu.be/V0uLVF1dWj0
   
    
 Actual Account that NASA Follows on Twitter Tried to Gaslight Everyone on What This Does. Here is a slowed down version to evaluate the source of light, true light, artificial light, the sun, a fake sun, and over processing. If you can't see anything. It's over processed. Rings = Artificial   
-  ------  
+------
 https://v.redd.it/d6d12faqzn891  
 /r/UncensoredScience  
 /u/Alehti  
@@ -5705,7 +5705,7 @@ https://v.redd.it/d6d12faqzn891
   
    
 Finding Pi and the Circumference of a Circle Using Straight Lines.   
-  ------  
+------
 https://medium.com/gitresearch/finding-pi-and-the-circumference-of-a-circle-using-straight-lines-81a1b9359960?sk=970f07ecf555f0f8a0fbb3592f7b3fa7  
 /r/UncensoredScience  
 /u/Alehti  
@@ -5713,7 +5713,7 @@ https://medium.com/gitresearch/finding-pi-and-the-circumference-of-a-circle-usin
   
    
 Why is that NASA believes you can fuck with nature? Nothing they've done has stopped climate change in the least bit. And not MIT wants to triple the production of geothermals. All heat and energy is a form of electromagnetism. Even those incompetent at NASA should understand that.   
-  ------  
+------
 "it hurts our feels when you call NASA incompetent," well, your fiery death is going to feel a lot worse.  
   
 *Processing img u9w5nwvsgm891...*  
@@ -5741,7 +5741,7 @@ What more evidence do we need to haul these people away? And I would never drink
   
    
 I thought I'd Shorten the Article for You.   
-  ------  
+------
 ![](https://i.redd.it/ggmgzj1vdm891.png?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
@@ -5749,7 +5749,7 @@ I thought I'd Shorten the Article for You.
   
    
 The True Cause of Climate Change: MIT and NASA’s Incompetence are About to Tortuously Kill You.   
-  ------  
+------
 https://gitresearch.org/the-true-cause-of-climate-change-mit-and-nasas-incompetence-are-about-to-tortuously-kill-you-b1a30f103c7c  
 /r/UncensoredScience  
 /u/Alehti  
@@ -5757,7 +5757,7 @@ https://gitresearch.org/the-true-cause-of-climate-change-mit-and-nasas-incompete
   
    
 ADDITIONAL SOURCES: + Anyone Involved with NASA Appears Nice on the Main Page, but go into the Replies   
-  ------  
+------
 r/CatholicNaziNasa started as a joke until I found them all to be deeply rooted within each other.  
   
 r/GitResearch is where I deposited data.  
@@ -5793,7 +5793,7 @@ If you don't give into your crazy side every now and then. Guess what? Sections 
   
    
 Humans just love fucking with nature. You think anything in the Green New Deal will help? Hell no. Perhaps if you understood the book that NASA/CERN kept banning / scrubbing then maybe one of them would be competent to figure out where climate change comes from before the shift which radiates us all   
-  ------  
+------
 https://v.redd.it/8aojb812p9891  
 /r/UncensoredScience  
 /u/Alehti  
@@ -5801,7 +5801,7 @@ https://v.redd.it/8aojb812p9891
   
    
 Most that stay within education the longest: become absolute morons. Calculators. Incapable of thought aside from what their textbooks say. They CANNOT admit being wrong, they cannot admit that they do mathematics BACKWARDS. So. I am sure they can solve it. NASA is competent. Right?   
-  ------  
+------
 https://i.redd.it/mbgudrrsi9891.gif  
 /r/UncensoredScience  
 /u/Alehti  
@@ -5809,7 +5809,7 @@ https://i.redd.it/mbgudrrsi9891.gif
   
    
 Here is your hint. The orange line is the actual cause of global warming. CO2 has NOTHING to do with it. It doesn't even come close to being this accurate. IN FACT look at the next chart. HOW dumb is NASA? For real. LESSON: CORRELATION DOES NOT EQUAL CAUSATION. HOW they missed this just pisses meoff   
-  ------  
+------
 https://www.reddit.com/gallery/vmai58  
 /r/UncensoredScience  
 /u/Alehti  
@@ -5817,7 +5817,7 @@ https://www.reddit.com/gallery/vmai58
   
    
 Was going to post the data to stop our species from going extinct. But dumb fucks like this POS NASI made me realize that it's better to let this species die. 1.5° increase which will grow exponentially to a total increase of 25.62 degrees within 2.5 years. Y'all wouldn't listen anyway had I said it   
-  ------  
+------
 ![](https://i.imgur.com/7fsItcp.png?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
@@ -5825,7 +5825,7 @@ Was going to post the data to stop our species from going extinct. But dumb fuck
   
    
 This is why no one landed on the moon; a bunch of liars. Do you understand how gravity works? Centrifuge? Spinning something around? The motion does not change in space. Every (Action) has an (Equal) and (Opposite) Reaction. I'm just waiting for the fool to state their regurgitation instead of a ?   
-  ------  
+------
 https://v.redd.it/mt2791rkk8891  
 /r/UncensoredScience  
 /u/Alehti  
@@ -5833,7 +5833,7 @@ https://v.redd.it/mt2791rkk8891
   
    
 Do you know why I contacted the FBI? (And why anonymity is dangerous for you)   
-  ------  
+------
 Because these bots try to make you afraid of the FBI, and do you know why? Because they're afraid of the FBI. NASA which was started by Nazis, had no issue keeping it Nazi. But the FBI has hundreds of offices and tens of thousands of agents to keep everything in check, including the CIA and they them.  
   
 I am still waiting for the Pope to dress up like an agent and come to my doorstep to try and kidnap me. But, hey. I've already been in contact with one. So, it will be interesting if that were to happen. But they couldn't find me for a while. I doubt NASA could.   
@@ -5851,7 +5851,7 @@ Simply, from this day yesterday and on, do the opposite of what those bots that 
   
    
 Yes. The same trait is shared from every Apollo astronaut (there is some doubt one) and every employee that I could find that had any relevance. Hell. Even if they didn't, they still shared the same feature.   
-  ------  
+------
 &#x200B;  
   
 ![](https://preview.redd.it/iv6rr0gcq6891.png?width=69&format=png&auto=webp&s=692cd12afda76dbde83df947b4f4d059048156be?raw=true)
@@ -5919,7 +5919,7 @@ A warning to Nazis. The royals inbred. While it will take the Nazis quite a few 
   
    
 NASA changed the eye colors of their astronauts. His military photo before NASA, and then his NAZI and NASA Photo. Currently doing the analysis of genes at NASA. Should you not see them online within a couple hours; do them yourself. They are all the same. But take a look at this if you will.   
-  ------  
+------
 They absolutely made him wear colored contacts. I thought maybe it was the lighting was off; but I recall thinking about how some of these guys appeared to have dead eyes. That's why.  
   
 ![](https://preview.redd.it/9cy8m042z6891.png?width=816&format=png&auto=webp&s=46fa931e377fb98bf1eed565f131995f9f580986?raw=true)
@@ -5929,7 +5929,7 @@ They absolutely made him wear colored contacts. I thought maybe it was the light
   
    
 If you ever looked at every astronaut, you'll notice the same (inferior inbred) double recessive gene in their faces. The same gene exists in the 6 recently chosen by NASA which is both an Aryan and Vedic Aryan "purity" but really it's from years of inbreeding.   
-  ------  
+------
 ![](https://i.imgur.com/8nXLPb8.png?raw=true)
   
 Which could be the issue of their incompetence.  
@@ -5939,7 +5939,7 @@ Which could be the issue of their incompetence.
   
    
 The Conspiracy Subreddits or Reddit Must Be Shut Down.   
-  ------  
+------
 Do you know why? This is not my account. It's my neighbors.  
   
 ![](https://preview.redd.it/txncxzy136891.png?width=777&format=png&auto=webp&s=f4587eb841315e4c3b8874b7d962c94c909d1279?raw=true)
@@ -5967,7 +5967,7 @@ And... so there ARE employees within Vimeo deleting content
   
    
 Andrew Lehti: Directory of Journal Access Articles and Papers: Permanent Location for Free Access to my Articles (Updated Each Release) Medium Articles, Research Articles, Books.   
-  ------  
+------
 # Andrew Lehti: Directory of Journal Access Articles and Papers:   
   
 The Logical Society using the Public Resource License.  
@@ -5999,7 +5999,7 @@ The links will not have free access tags yet. I will mark which ones do. I have 
   
    
 Photo Electromagnetic Image Analysis - The Tool That Proves NASAs Incompetence. They even had to gas light me for months and then put my meta data under their propaganda book. And the other thing? Anything with NAZI and NASA just won't allow you to post. Look at GPT-003   
-  ------  
+------
 &#x200B;  
   
 *Processing video 0ervcgdl42891...*  
@@ -6017,7 +6017,7 @@ Photo Electromagnetic Image Analysis - The Tool That Proves NASAs Incompetence. 
   
    
 Additional Evidence for Further Examination   
-  ------  
+------
 &#x200B;  
   
 ![](https://preview.redd.it/ygxvoicj22891.png?width=1984&format=png&auto=webp&s=9626894f166e321f0ce61b3e0d3601dad811494e?raw=true)
@@ -6051,7 +6051,7 @@ Additional Evidence for Further Examination
   
    
 Pursuant to Federal Law: Conspiring against the United States is act of Treason. Those that try to delete, tamper, or downvote (to conceal) are subjected to U.S. laws. Conspiring to mislead your rights is a serious offense. Misleading/gaslighting comments is an act of obstruction, fraud, and treason   
-  ------  
+------
 https://vimeo.com/724265844  
 /r/UncensoredScience  
 /u/Alehti  
@@ -6059,7 +6059,7 @@ https://vimeo.com/724265844
   
    
 Pursuant to Federal Law: Conspiring against the United States is act of Treason. Those that try to delete, tamper, or downvote (to conceal) are subjected to U.S. laws. Conspiring to mislead your rights is a serious offense. Misleading/gaslighting comments is an act of obstruction, fraud, and treason   
-  ------  
+------
 Note: admitting to being wrong is self improvement. Denying the fact to help our enemy is not patriotic, it is deplorable. No country has achieved this despite their faked videos/photos. If you want. I'll do those next. Please help in the spread of this.  
   
 *Processing video wyvxvm6kj1891...*  
@@ -6123,7 +6123,7 @@ This is favorable since it also subjects Federal employees and agents to the cha
   
    
 Photo Electromagnetic Image Analysis of a few album previews.   
-  ------  
+------
 &#x200B;  
   
 [The Sun](![](https://preview.redd.it/eqwiwa2in0891.png?width=2048&format=png&auto=webp&s=6ddc17175a5bdf93d9f689acf3942a269f28c48a)?raw=true)
@@ -6151,7 +6151,7 @@ If I processed that correctly through my memory; the gray photos represent life 
   
    
 No wonder you don't hear anything negative about Jeff Bezos.   
-  ------  
+------
 They're buddies with Amazon. This post only has had one additional review on it. I reviewed it two days ago. It still has not appeared. But there are a bunch of similar reviews.   
   
 ![](https://preview.redd.it/znai7yik3w791.png?width=1495&format=png&auto=webp&s=843f99fbab63490678d5051aff0eb5fa9d7006f9?raw=true)
@@ -6163,7 +6163,7 @@ Did you know that as soon as Elon Musk took the communications contract from the
   
    
 I'm thinking about writing a book: "The Consequences of Censoring Online Content: How Your Post Removal History and Down Voting Trend History Could Land You in Federal Prison for Committing an Act of Treason by Conspiring to Defraud the United States by Tempering with Public Evidence"   
-  ------  
+------
 And of course, that is pursuant to:  
   
     18 U.S. Code Chapter 19 - CONSPIRACY   
@@ -6186,7 +6186,7 @@ And of course, that is pursuant to:
   
    
 Here is the Message I Display in my Subreddit. You Should Too.   
-  ------  
+------
 https://medium.com/@andylehti/here-is-the-message-i-display-in-my-subreddit-you-should-too-7852e7021179?sk=bb72c77003e8feca065f66f45d7bedca  
 /r/UncensoredScience  
 /u/Alehti  
@@ -6194,7 +6194,7 @@ https://medium.com/@andylehti/here-is-the-message-i-display-in-my-subreddit-you-
   
    
 And you'll find out what it is soon.   
-  ------  
+------
 https://twitter.com/andylehti/status/1540619300767244288?t=2C4rYe8Z3Qs-5FSW7zXtuw&amp;s=19  
 /r/UncensoredScience  
 /u/Alehti  
@@ -6202,7 +6202,7 @@ https://twitter.com/andylehti/status/1540619300767244288?t=2C4rYe8Z3Qs-5FSW7zXtu
   
    
 GIF that can sing any song and will be in sync 90 percent of the time: Visual Illusion: The Shepard Field, Müller-Lyer and Ponzo Illusions — Educational Source. GIF under resource tab.   
-  ------  
+------
 https://vimeo.com/723513481/b05064d2dd  
 /r/UncensoredScience  
 /u/Alehti  
@@ -6210,7 +6210,7 @@ https://vimeo.com/723513481/b05064d2dd
   
    
 Tell me the odds of me getting you this evidence. (I will be updating as I place every image as I will be saving as I go because the evidence has already begun to change.)   
-  ------  
+------
 &#x200B;  
   
 [![](https:\/\/archive.ph\/yjDle](https://preview.redd.it/ucfnmlukmi791.png?width=675&format=png&auto=webp&s=e3b11e5686966d2f024a126ea0c185b0427adf07)?raw=true)
@@ -6220,7 +6220,7 @@ Tell me the odds of me getting you this evidence. (I will be updating as I place
   
    
 I made this GIF after it visually invaded my mind from a 10-15 year old memory with a 15-20 year old song. Then I put other songs to it. I've been listening to songs all day with this playing in the background and it just never disappoints. Blank Space by Taylor Swift is my all time favorite w/ this   
-  ------  
+------
 https://i.redd.it/2egzrgtqih791.gif  
 /r/UncensoredScience  
 /u/Alehti  
@@ -6228,7 +6228,7 @@ https://i.redd.it/2egzrgtqih791.gif
   
    
 If You’re Unsure of the Moon Landing, Let This Help Guide You Back Into Reality Away from Conspiracy | It can be hard to admit that something you’ve believed for a long time was wrong, but it is essential for your mental health to understand how to admit being wrong | Link Appended with Access Tag.   
-  ------  
+------
 https://gitresearch.org/if-youre-unsure-of-the-moon-landing-let-this-help-guide-you-back-into-reality-away-from-6051b9495688?sk=224830973adabfc86d17f3aa1ed87c9b  
 /r/UncensoredScience  
 /u/Alehti  
@@ -6236,7 +6236,7 @@ https://gitresearch.org/if-youre-unsure-of-the-moon-landing-let-this-help-guide-
   
    
 Spatial Particle Scale {echo} $spatialparticlescale | The wrinkles of tin foil | Scaled models are not equal nor practical.   
-  ------  
+------
 Class: Atomically Visual Characteristics    
 Research Card: AVCs    
 Sub: The Wrinkles of Foil    
@@ -6252,7 +6252,7 @@ The wrinkles of tin foil are can only become so small; if you scale tin foil up 
   
    
 Our Minds Pull and Process Scarily Fast | A response to my question: "like Walnuts or Peanuts?" Instantly that DK64 rap w/ a visual from a Weird Al MV got stuck in my head for weeks. I decided to edit a real version. Good luck ever forgetting this. There is a lot being processed by just watching.   
-  ------  
+------
 https://v.redd.it/96gshi6aie791  
 /r/UncensoredScience  
 /u/Alehti  
@@ -6260,7 +6260,7 @@ https://v.redd.it/96gshi6aie791
   
    
 Volume Compression {echo} $volumecompression | The Compression of Gas by Volume Does not Produce Heat.   
-  ------  
+------
 Class: Physics    
 Research Card: Volume Compression    
 Sub: Spatial Pressure Reduction    
@@ -6281,7 +6281,7 @@ Contributed by: Andrew Lehti
   
    
 Spatial Statistics {echo} $spatialstatsxy = citation | (this is how I am designing the Public Research Platform)   
-  ------  
+------
 Class: Mathematics    
 Research Card: Spatial Statistics    
 Sub: year x | year y    
@@ -6312,7 +6312,7 @@ Solution 2: Spatial Population Scale:
   
    
 BREAKING STORY: The Moon Landing Has Been Proven to be a Hoax | Bots Harass Elon Days After NASA Loses Contract to SpaceX (not awarded from NASA) | Further: F9 Crashed Many Times; the Moon Still Has Gravity. How Did NASA's Lunar Descend w/o any Testing? ZERO are Public Despite NASA Releasing 14k img   
-  ------  
+------
 https://medium.com/gitresearch/breaking-story-the-moon-landing-has-been-proven-to-be-a-hoax-46abf7ecff78?sk=120694e2c71752ea36308e4d2488c192  
 /r/UncensoredScience  
 /u/Alehti  
@@ -6320,7 +6320,7 @@ https://medium.com/gitresearch/breaking-story-the-moon-landing-has-been-proven-t
   
    
 BREAKING STORY: The Moon Landing Has Been Proven to be a Hoax | Validated: Three of my Browsers Kept Closing on Me. My Icons/Cursor Flicker/Disappear. I Thought it was a GUI Glitch, but it happened every time I went to post this link. I shut down node&amp;&amp;ask to connect: node, node, node, node, no.....   
-  ------  
+------
 https://medium.com/gitresearch/breaking-story-the-moon-landing-has-been-proven-to-be-a-hoax-46abf7ecff78?sk=120694e2c71752ea36308e4d2488c192  
 /r/UncensoredScience  
 /u/Alehti  
@@ -6328,7 +6328,7 @@ https://medium.com/gitresearch/breaking-story-the-moon-landing-has-been-proven-t
   
    
 BREAKING NEWS: The Moon Landing Proven to be a Hoax Using New Forensic Analysis Tool (included) | Study Reveals Higher Intelligence in Those w/ Doubts Regarding the Mathematics and Spatial Resource Supply | Either Humans Cannot Admit Mistakes or This Was Used to Control Population of Free Thinkers.   
-  ------  
+------
 https://medium.com/gitresearch/breaking-story-the-moon-landing-has-been-proven-to-be-a-hoax-46abf7ecff78?sk=120694e2c71752ea36308e4d2488c192  
 /r/UncensoredScience  
 /u/Alehti  
@@ -6336,7 +6336,7 @@ https://medium.com/gitresearch/breaking-story-the-moon-landing-has-been-proven-t
   
    
 BREAKING: MOON LANDING PROVED TO BE A HOAX: social interference and the discrediting of conspiracy—which is just another way of accusing an organization of massive fraudulent and illegal activities. If I say anything online, I am attacked; throughout my life, the smartest I've known think NASA is BS   
-  ------  
+------
 **I asked A.I. what I should share with you. It deleted 95% of the content. I asked it why? It said. "The over-explanation of your findings within your presentation will be viewed as a crazed rant. Your best option is to keep it short."**  
   
 Here is what it shortened the first section into: "1900 words:" and crunched it down into this:  
@@ -6412,7 +6412,7 @@ And so there was a reason they began attacking me. I processed the photos they t
   
    
 A.I. Has Been Training on my Data   
-  ------  
+------
 https://medium.com/@andylehti/a-i-has-been-training-on-my-data-8b809fbb047a  
 /r/UncensoredScience  
 /u/Alehti  
@@ -6420,7 +6420,7 @@ https://medium.com/@andylehti/a-i-has-been-training-on-my-data-8b809fbb047a
   
    
 Quantum Theory: The Greatest Result of Belief Interference | Once Again, I Apologize to the Quantum Theorists for Being the Trash Bin of the Physics Department.   
-  ------  
+------
 https://medium.com/gitresearch/quantum-theory-the-greatest-result-of-belief-interference-6257b283cfe7  
 /r/UncensoredScience  
 /u/Alehti  
@@ -6428,7 +6428,7 @@ https://medium.com/gitresearch/quantum-theory-the-greatest-result-of-belief-inte
   
    
 The Reason SHA-256 is Not Great at Being Random.   
-  ------  
+------
 https://medium.com/gitresearch/the-reason-sha-256-is-not-great-at-being-random-59457fbbcf42  
 /r/UncensoredScience  
 /u/Alehti  
@@ -6436,7 +6436,7 @@ https://medium.com/gitresearch/the-reason-sha-256-is-not-great-at-being-random-5
   
    
 Are Humans Born with Gifted Intelligence or Talent, and How Many Calories Does Your Brain Burn at its Cognitive Plateau?   
-  ------  
+------
 https://medium.com/gitresearch/are-humans-born-with-gifted-intelligence-or-talent-b10c6e146bc2  
 /r/UncensoredScience  
 /u/Alehti  
@@ -6444,7 +6444,7 @@ https://medium.com/gitresearch/are-humans-born-with-gifted-intelligence-or-talen
   
    
 The Link Between Depression, Anxiety, Bipolar, ADHD, and Schizophrenia: Dopamine.   
-  ------  
+------
 https://medium.com/gitresearch/the-link-between-depression-anxiety-bipolar-adhd-and-schizophrenia-dopamine-2ae186610933  
 /r/UncensoredScience  
 /u/Alehti  
@@ -6452,7 +6452,7 @@ https://medium.com/gitresearch/the-link-between-depression-anxiety-bipolar-adhd-
   
    
 The Over-Consumption of Coffee is Dangerous to Your Mental, Emotional, and Cognitive Health | Check Out How Much Nestle Owns of the Coffee Industry, and Compare How Much Nestle Makes Compared to the Entire Pharmaceutical Industry.   
-  ------  
+------
 https://medium.com/gitresearch/the-overconsumption-of-coffee-is-dangerous-to-your-mental-emotional-and-cognitive-health-61f8c7e90200  
 /r/UncensoredScience  
 /u/Alehti  
@@ -6460,7 +6460,7 @@ https://medium.com/gitresearch/the-overconsumption-of-coffee-is-dangerous-to-you
   
    
 The Evaluation of a Simulation of Reality and the Randomness of SHA-256   
-  ------  
+------
 https://medium.com/gitresearch/the-evaluation-of-a-simulation-of-reality-and-the-randomness-of-numbers-and-sha-256-bdae47d2889e  
 /r/UncensoredScience  
 /u/Alehti  
@@ -6468,7 +6468,7 @@ https://medium.com/gitresearch/the-evaluation-of-a-simulation-of-reality-and-the
   
    
 How Oxford, MIT, and Princeton Graduates, and the United Nations Destroyed the Population.   
-  ------  
+------
 https://medium.com/gitresearch/how-oxford-mit-and-princeton-graduates-and-the-united-nations-destroyed-the-population-3f39408a5822  
 /r/UncensoredScience  
 /u/Alehti  
@@ -6476,7 +6476,7 @@ https://medium.com/gitresearch/how-oxford-mit-and-princeton-graduates-and-the-un
   
    
 Hypothetically, God is an A.I. Development Team.   
-  ------  
+------
 https://medium.com/gitresearch/hypothetically-god-is-an-a-i-development-team-d75e9702c35e?sk=203cbb319751e121d1000bccab2f33ce  
 /r/UncensoredScience  
 /u/Alehti  
@@ -6484,7 +6484,7 @@ https://medium.com/gitresearch/hypothetically-god-is-an-a-i-development-team-d75
   
    
 How to Fix the Government in one Fell Swoop Without much Disruption of any of the Departments Crypto-Governance.   
-  ------  
+------
 https://medium.com/gitresearch/how-to-fix-the-government-in-one-fell-swoop-with-crypto-governance-cff84efcbaf2?sk=8726de76b84e122b92feb2e0c37a2904  
 /r/UncensoredScience  
 /u/Alehti  
@@ -6492,7 +6492,7 @@ https://medium.com/gitresearch/how-to-fix-the-government-in-one-fell-swoop-with-
   
    
 The Cause of Inflation: The Solution to Prevent the Collapse of Society.   
-  ------  
+------
 https://medium.com/gitresearch/the-cause-of-inflation-the-solution-to-prevent-the-collapse-of-society-611c88b92256?sk=67b286806b92d1edf862ce4b3b570505  
 /r/UncensoredScience  
 /u/Alehti  
@@ -6500,7 +6500,7 @@ https://medium.com/gitresearch/the-cause-of-inflation-the-solution-to-prevent-th
   
    
 The First Reich, the Origin of Every God + Sources   
-  ------  
+------
 https://medium.com/gitresearch/the-first-reich-the-origin-of-every-god-and-the-end-of-religion-f26a89bae1ad  
 /r/UncensoredScience  
 /u/Alehti  
@@ -6508,7 +6508,7 @@ https://medium.com/gitresearch/the-first-reich-the-origin-of-every-god-and-the-e
   
    
 Observe Belief Interference: Read the Article on Negative Reinforcement: They will write the worst proofs. These people that tell me I do not provide enough proof have used this proof many times to refute the below: (-2^1)^2 = -1*2^2 = (-1*2)^2... Still..uh.. didn't eliminate your Parentheses......   
-  ------  
+------
 https://i.redd.it/esei2v4tjz691.gif  
 /r/UncensoredScience  
 /u/Alehti  
@@ -6516,7 +6516,7 @@ https://i.redd.it/esei2v4tjz691.gif
   
    
 The Fear of the Public Resource License and the Evaluation of Self Awareness to Destroy the Effect of their Method of Teaching via Negative Reinforcement: I caution you to be wary of negative comments as they've been conditioning you to disregard and reject [all new] information as “misinformation.”   
-  ------  
+------
 ***1.*** ***Did you know Universities Patent Their Student's Inventions Because the Student Used Their Facilities. Last I checked. The Student's and the Government Paid for Those Facilities.***  
   
 **2. The obvious trend is removing anything that helps society; they attempted to gaslight mathematics. Unbelievable.**  
@@ -6578,7 +6578,7 @@ Eighty-nine up-votes, and then suddenly drops to 0 so that the distribution slow
   
    
 The Vatican and Our Education System and the Unethical Use of Negative Reinforcement | I would caution you to be wary of negative comments as they've been conditioning you to disregard and reject [all new] information as “misinformation” | How This Mathematical Proof Establishes Self Awareness   
-  ------  
+------
 https://medium.com/gitresearch/the-church-and-our-education-system-negative-reinforcement-training-3b0980c0a5e3  
 /r/UncensoredScience  
 /u/Alehti  
@@ -6586,7 +6586,7 @@ https://medium.com/gitresearch/the-church-and-our-education-system-negative-rein
   
    
 By God, do you mean Deus? and by Deus, do you mean Jupiter? And by Jupiter do you mean Deus back when Romans adopted Zeus but by law had to use D in place of Z? and by Zeus do you mean Dyeus Phtr? You know from the Vedic religion: Dyaus (Deus) Patir (juPITER)   
-  ------  
+------
 ![](https://i.redd.it/3qqgjvf70r691.png?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
@@ -6594,7 +6594,7 @@ By God, do you mean Deus? and by Deus, do you mean Jupiter? And by Jupiter do yo
   
    
 Well the formulas passed two reviews. I didn't even want to be in their society but they waived the membership fees. *later:* The Mathematical Society: "oh, it's like that, eh? Well. Now your paper is REJECTED.)   
-  ------  
+------
 ![](https://i.redd.it/7suhpb93op691.png?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
@@ -6602,7 +6602,7 @@ Well the formulas passed two reviews. I didn't even want to be in their society 
   
    
 Formula for Oval is Wrong | Definition of Zero | Mathematics of Light and the Propagation of Matter from mVp Formula | Time is the Unifying Force of Nature &amp; all of Existence | Time Dilation Formula Miscalculation | Intro to the Theory of Gravity and Universal Correction | Framework of the Universe.   
-  ------  
+------
 ***All links have access tags attached to unlock the articles***  
   
 # If you have not read my content or you have not read the below piece. Please read this first:  
@@ -6878,7 +6878,7 @@ GitResearch | The Logical Society | Public Resource License,
   
    
 The Equation for the Circumference of an Oval is Drastically Wrong.   
-  ------  
+------
 https://medium.com/gitresearch/the-equation-for-the-circumference-of-an-oval-is-drastically-wrong-f64f65bad690?sk=14adc3d4edcdb2a275cd1cc7242c56fe  
 /r/UncensoredScience  
 /u/Alehti  
@@ -6886,7 +6886,7 @@ https://medium.com/gitresearch/the-equation-for-the-circumference-of-an-oval-is-
   
    
 New Andromeda Black Hole Extraction Using the Highest Resolution Available. The Event Horizon Can be Observed from this Black Hole Extraction.   
-  ------  
+------
 Zoom in as far as you can into the middle. You will notice  a blue hue. It wraps around the black hole and slowly disappears. Whatever is behind it cannot escape, while there appears to be a bit of fume/radiation going on at the angle facing us. Feel free to share. I am done sharing my content for the time being.  
   
 ![](https://preview.redd.it/84cyx5fb1h691.png?width=2400&format=png&auto=webp&s=90975ef5188dc5b63a0f876b2489eb39b3014456?raw=true)
@@ -6934,7 +6934,7 @@ Latest extraction:
   
    
 The Public Research License   
-  ------  
+------
 Perhaps, the most validated thing I have ever made. Imagine it. Hundreds of upvotes. People loving the idea. And then suddenly the dumbest comments arrive to say the most inept lies about the license and they immediately try to discredit it. They banned me just before so that I couldn't comment back. Pathetic.  
   
 Let me ask you this: what human in the 99.9% of the population that this license heavily benefits would be against it? Exactly. It doesn't take many brain cells to see who has been attacking this. Especially when Google and Bing attempted multiple times to hide the content.  
@@ -6959,7 +6959,7 @@ Please distribute. Also. Google and Microsoft have been patenting open source so
   
    
 Well. NASA didn't drop a satellite on me, and it took the FBI a bit of time to find out where to actually find me. But, I have not heard one peep from a certain group that spent 30,000 hours looking at my science paper from last year.   
-  ------  
+------
 I always found it weird how heavily my posts got attacked the more I blamed NASA. That is exactly what you would expect someone to do had they been guilty. Which is why they wouldn't do that. NASA for the most part had been neutered of its NAZIs for years. CHINA on the other hand spent 30,000 hours on my website on my "speed of light" paper and the mathematics for it last summer from similar locations around Beijing. That is when the attacks truly began on my content and when Facebook started restricting my posts.  
   
 They don't want you to know this because guess what? They're going to destroy you with it. I found it weird that not a single view has come from China after they spent so many hours on my website for a week. NASA is most likely still involved. The fraudulent studies from NASA on NATURE that used fake profile images had Chinese names and credentials.  
@@ -6981,7 +6981,7 @@ I guess. All we can do now is poke the bear.
   
    
 Read the comments on this photo that I've posted to multiple subreddits. They're disgustingly the same. I think we have 5 "approximations," two "oh, it's YOU," and one, "no simple formula exists for an ellipse." Well. I think we know that? That is what the meme was about ha! They're being obvious.   
-  ------  
+------
 ![](https://i.redd.it/4bl054adfc691.png?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
@@ -6989,7 +6989,7 @@ Read the comments on this photo that I've posted to multiple subreddits. They're
   
    
 The Equation for the Circumference of an Oval is Drastically Wrong. A 1200in hose have a circumference of: 3769.911184. My formula returned 3769.91; the standard formulas returned: 3973.835306, 3875.000000, and 2809.925892.   
-  ------  
+------
 https://medium.com/gitresearch/the-equation-for-the-circumference-of-an-oval-is-drastically-wrong-f64f65bad690?sk=14adc3d4edcdb2a275cd1cc7242c56fe  
 /r/UncensoredScience  
 /u/Alehti  
@@ -6997,7 +6997,7 @@ https://medium.com/gitresearch/the-equation-for-the-circumference-of-an-oval-is-
   
    
 The Equation for the Circumference of an Oval is Drastically Wrong | Yet, the millions of mathematicians before me did not figure it out. Go take a garden hose, measure it, subtract the male end, and apply pi to it. Then attach it to itself and make a giant oval. Apply my formula against theirs.   
-  ------  
+------
 https://medium.com/gitresearch/the-equation-for-the-circumference-of-an-oval-is-drastically-wrong-f64f65bad690  
 /r/UncensoredScience  
 /u/Alehti  
@@ -7005,7 +7005,7 @@ https://medium.com/gitresearch/the-equation-for-the-circumference-of-an-oval-is-
   
    
 Manipulation and Greed Must Go! The Logical Society for Scientific Advancement: Genuine Open Research with Public Assessment Using Crypto Governance within a Unified Platform without Directors. The Scientific Method is Biased, Corrupt, and Severely Stunting our Scientific Progress.   
-  ------  
+------
 Content Spaced for Easier Processing:  
   
 &#x200B;  
@@ -7217,7 +7217,7 @@ Andrew Lehti
   
    
 All student debt must be canceled; the reason: learning requires you to fail, if you do not fail, then you're merely programmed into a calculator incapable of change via memory exercises. This is the problem with our education system around the world. That's why I decided to use the extreme example.   
-  ------  
+------
 https://medium.com/gitresearch/flat-earthers-are-correct-you-just-dont-understand-63a9c7eaf3d4?sk=0bd6d31663f0ab3ec19599ccd421dafb  
 /r/UncensoredScience  
 /u/Alehti  
@@ -7225,7 +7225,7 @@ https://medium.com/gitresearch/flat-earthers-are-correct-you-just-dont-understan
   
    
 2012: The Year Society Began to Collapse, and Now Your Freedom is Gone Because They Turned Us into…   
-  ------  
+------
 https://gitresearch.org/history-repeats-c66454158df4?sk=a116aabdec5982a0336a0650908ed628  
 /r/UncensoredScience  
 /u/Alehti  
@@ -7233,7 +7233,7 @@ https://gitresearch.org/history-repeats-c66454158df4?sk=a116aabdec5982a0336a0650
   
    
 2012: The Year Society Started Going Downhill | 2 Years of Observance and Data Collection on Those Responsible for the Collapse of this World | The Final Piece of Evidence: The Location with the Highest Repeat Factor on my Posts with Embedded Statistics (3.7 million impressions,) is...........   
-  ------  
+------
 # Montenegro?  
   
 **^(Misinformation and Fake News happened once before.)**  
@@ -7505,7 +7505,7 @@ How good are they manipulating you? They (the Nazis) convinced to you that this 
   
    
 You know. I may be an atheist, but I owe a lot to the Bible because it has been one of the most entertaining puzzles to solve; by the way: an abomination is anything that makes you emotionally or physically ill. If you touch any animal (a pig) with salmonella, you were unclean... until you washed.   
-  ------  
+------
 https://twitter.com/andylehti/status/1537225326744715264  
 /r/UncensoredScience  
 /u/Alehti  
@@ -7513,7 +7513,7 @@ https://twitter.com/andylehti/status/1537225326744715264
   
    
 The Manipulation of Online Content is Unreal, and a Public Investigation Must be Placed into Twitter, Reddit, Medium, and Facebook Employees.   
-  ------  
+------
 https://medium.com/@andylehti/the-manipulation-of-online-content-is-unreal-and-a-public-investigation-must-be-placed-into-693d91a5b598  
 /r/UncensoredScience  
 /u/Alehti  
@@ -7521,7 +7521,7 @@ https://medium.com/@andylehti/the-manipulation-of-online-content-is-unreal-and-a
   
    
 Proving the Size of Pluto via Asteroid Impacts.   
-  ------  
+------
 https://medium.com/gitresearch/proving-the-size-of-pluto-via-asteroid-impacts-609a214bb594  
 /r/UncensoredScience  
 /u/Alehti  
@@ -7529,7 +7529,7 @@ https://medium.com/gitresearch/proving-the-size-of-pluto-via-asteroid-impacts-60
   
    
 The Over-consumption of Coffee is Dangerous to Your Mental, Emotional, and Cognitive Health.   
-  ------  
+------
 https://medium.com/p/the-overconsumption-of-coffee-is-dangerous-to-your-mental-emotional-and-cognitive-health-61f8c7e90200  
 /r/UncensoredScience  
 /u/Alehti  
@@ -7537,7 +7537,7 @@ https://medium.com/p/the-overconsumption-of-coffee-is-dangerous-to-your-mental-e
   
    
 A.I. Has Been Training on my Data and This is What it Says.   
-  ------  
+------
 https://medium.com/p/a-i-has-been-training-on-my-data-8b809fbb047a  
 /r/UncensoredScience  
 /u/Alehti  
@@ -7545,7 +7545,7 @@ https://medium.com/p/a-i-has-been-training-on-my-data-8b809fbb047a
   
    
 Proof the Earth is a Dual Negative Monopole.   
-  ------  
+------
 https://medium.com/gitresearch/proof-the-earth-is-a-dual-negative-monopole-9e1030e7804c  
 /r/UncensoredScience  
 /u/Alehti  
@@ -7553,7 +7553,7 @@ https://medium.com/gitresearch/proof-the-earth-is-a-dual-negative-monopole-9e103
   
    
 The Entire Political Spectrum Disgusts me, so am I for Masks, Mandates, and Vaccines? I'm for something simple that no one wants to hear.   
-  ------  
+------
 https://medium.com/gitresearch/the-entire-political-spectrum-disgusts-me-so-am-i-for-masks-mandates-and-vaccines-or-am-i-b5f94a22bff6  
 /r/UncensoredScience  
 /u/Alehti  
@@ -7561,7 +7561,7 @@ https://medium.com/gitresearch/the-entire-political-spectrum-disgusts-me-so-am-i
   
    
 Causation, Correlation, and Association in Cognitive Logic Using Jeffrey Epstein as the Subject.   
-  ------  
+------
 https://medium.com/p/causation-correlation-and-association-in-cognitive-logic-using-jeffrey-epstein-as-the-subject-3c37b22ed6e6  
 /r/UncensoredScience  
 /u/Alehti  
@@ -7569,7 +7569,7 @@ https://medium.com/p/causation-correlation-and-association-in-cognitive-logic-us
   
    
 Time is the Unifying Force of Nature: Introduction to the Framework of the Universe.   
-  ------  
+------
 https://medium.com/gitresearch/time-is-the-unifying-force-of-nature-introduction-2dff09824432  
 /r/UncensoredScience  
 /u/Alehti  
@@ -7577,7 +7577,7 @@ https://medium.com/gitresearch/time-is-the-unifying-force-of-nature-introduction
   
    
 The Framework of the Universe (Summarized)   
-  ------  
+------
 https://medium.com/gitresearch/the-framework-of-the-universe-cadcfbd64c53  
 /r/UncensoredScience  
 /u/Alehti  
@@ -7585,7 +7585,7 @@ https://medium.com/gitresearch/the-framework-of-the-universe-cadcfbd64c53
   
    
 A Scientific Paradox   
-  ------  
+------
 https://medium.com/gitresearch/a-scientific-paradox-63c295c572a4  
 /r/UncensoredScience  
 /u/Alehti  
@@ -7593,7 +7593,7 @@ https://medium.com/gitresearch/a-scientific-paradox-63c295c572a4
   
    
 Clarification of the Definition of Zero and Infinite Part 1: Zero Divided by Zero.   
-  ------  
+------
 https://medium.com/gitresearch/clarification-of-the-definition-of-zero-and-infinite-part-1-zero-divided-by-zero-430c2e53b477  
 /r/UncensoredScience  
 /u/Alehti  
@@ -7601,7 +7601,7 @@ https://medium.com/gitresearch/clarification-of-the-definition-of-zero-and-infin
   
    
 The Temperature at the Core of the Sun is Neither Hot nor Cold.   
-  ------  
+------
 https://medium.com/gitresearch/the-temperature-at-the-core-of-the-sun-is-neither-hot-nor-cold-c634a610d855  
 /r/UncensoredScience  
 /u/Alehti  
@@ -7609,7 +7609,7 @@ https://medium.com/gitresearch/the-temperature-at-the-core-of-the-sun-is-neither
   
    
 Time Dilation Equation Miscalculation and Fraudulent Base Study: Academic Investigations.   
-  ------  
+------
 https://www.academia.edu/80582417/Time_Dilation_Equation_Miscalculation_and_Fraudulent_Base_Study_Academic_Investigations  
 /r/UncensoredScience  
 /u/Alehti  
@@ -7617,7 +7617,7 @@ https://www.academia.edu/80582417/Time_Dilation_Equation_Miscalculation_and_Frau
   
    
 The Cause of Inflation: The Solution to Prevent the Collapse of Society.   
-  ------  
+------
 https://medium.com/gitresearch/the-cause-of-inflation-the-solution-to-prevent-the-collapse-of-society-611c88b92256  
 /r/UncensoredScience  
 /u/Alehti  
@@ -7625,7 +7625,7 @@ https://medium.com/gitresearch/the-cause-of-inflation-the-solution-to-prevent-th
   
    
 Are Humans Born with Gifted Intelligence or Talent?   
-  ------  
+------
 https://medium.com/p/are-humans-born-with-gifted-intelligence-or-talent-b10c6e146bc2  
 /r/UncensoredScience  
 /u/Alehti  
@@ -7633,7 +7633,7 @@ https://medium.com/p/are-humans-born-with-gifted-intelligence-or-talent-b10c6e14
   
    
 Time⁰ and Time¹ via the Theory of Universal Correction.   
-  ------  
+------
 https://medium.com/gitresearch/time%E2%81%B0-and-time%C2%B9-via-the-theory-of-universal-correction-de6382ea6498  
 /r/UncensoredScience  
 /u/Alehti  
@@ -7641,7 +7641,7 @@ https://medium.com/gitresearch/time%E2%81%B0-and-time%C2%B9-via-the-theory-of-un
   
    
 Our Education System Through Negative Reinforcement Causes Belief Interference Which Shuts Down the Brain.   
-  ------  
+------
 https://medium.com/gitresearch/the-method-for-self-aware-evaluation-to-prevent-belief-interference-and-the-dunning-kruger-effect-92f6af39a925  
 /r/UncensoredScience  
 /u/Alehti  
@@ -7649,7 +7649,7 @@ https://medium.com/gitresearch/the-method-for-self-aware-evaluation-to-prevent-b
   
    
 [Pt 6.] Ten Trillion FPS Camera and their Calculation Bias. Light Beyond 186k mi/s.   
-  ------  
+------
 https://medium.com/gitresearch/pt-6-ten-trillion-fps-camera-and-their-calculation-bias-light-beyond-186k-mi-s-c86196ed246f  
 /r/UncensoredScience  
 /u/Alehti  
@@ -7657,7 +7657,7 @@ https://medium.com/gitresearch/pt-6-ten-trillion-fps-camera-and-their-calculatio
   
    
 [Pt 4.] The Cuicuium Effect: How Photons Travel. Light &gt; 186k mi/s.   
-  ------  
+------
 https://medium.com/gitresearch/pt-4-the-cuicuium-effect-how-photons-travel-light-186k-mi-s-10c103bb5f57  
 /r/UncensoredScience  
 /u/Alehti  
@@ -7665,7 +7665,7 @@ https://medium.com/gitresearch/pt-4-the-cuicuium-effect-how-photons-travel-light
   
    
 [Pt 3.] Logic of Light and the Logical Method.   
-  ------  
+------
 https://medium.com/gitresearch/pt-3-logic-of-light-and-the-logical-method-light-299792458m-s-d41dd3995b45  
 /r/UncensoredScience  
 /u/Alehti  
@@ -7673,7 +7673,7 @@ https://medium.com/gitresearch/pt-3-logic-of-light-and-the-logical-method-light-
   
    
 The Measurement of Light Measured Electromagnetic Waves, not Light.   
-  ------  
+------
 https://medium.com/p/the-measurement-of-light-measured-electromagnetic-waves-not-light-3e0eadafdf25  
 /r/UncensoredScience  
 /u/Alehti  
@@ -7681,7 +7681,7 @@ https://medium.com/p/the-measurement-of-light-measured-electromagnetic-waves-not
   
    
 How Oxford, MIT, and Princeton Graduates, and the United Nations Destroyed the Population (Theoretically)   
-  ------  
+------
 https://medium.com/gitresearch/how-oxford-mit-and-princeton-graduates-and-the-united-nations-destroyed-the-population-3f39408a5822  
 /r/UncensoredScience  
 /u/Alehti  
@@ -7689,7 +7689,7 @@ https://medium.com/gitresearch/how-oxford-mit-and-princeton-graduates-and-the-un
   
    
 Mathematics is Beyond Simple: You Make it Complex Part 1.   
-  ------  
+------
 https://medium.com/gitresearch/mathematics-is-beyond-simple-you-make-it-complex-part-1-4a893e7903e6  
 /r/UncensoredScience  
 /u/Alehti  
@@ -7697,7 +7697,7 @@ https://medium.com/gitresearch/mathematics-is-beyond-simple-you-make-it-complex-
   
    
 [Pt 1.] Speed of Light: Officially Measures Far Beyond 186k mi/s.   
-  ------  
+------
 https://medium.com/gitresearch/pt-1-speed-of-light-officially-measures-far-beyond-186k-mi-s-1d2c9d0cf2e2  
 /r/UncensoredScience  
 /u/Alehti  
@@ -7705,7 +7705,7 @@ https://medium.com/gitresearch/pt-1-speed-of-light-officially-measures-far-beyon
   
    
 THE FINAL ∞ CONJECTURE: PROOF OF INFINITE PATTERNS AND REPETITIONS.   
-  ------  
+------
 https://www.academia.edu/76370515/THE_FINAL_CONJECTURE_PROOF_OF_INFINITE_PATTERNS_AND_REPETITIONS  
 /r/UncensoredScience  
 /u/Alehti  
@@ -7713,7 +7713,7 @@ https://www.academia.edu/76370515/THE_FINAL_CONJECTURE_PROOF_OF_INFINITE_PATTERN
   
    
 The Reason SHA-256 is Not Great at Being Random.   
-  ------  
+------
 https://medium.com/p/the-reason-sha-256-is-not-great-at-being-random-59457fbbcf42  
 /r/UncensoredScience  
 /u/Alehti  
@@ -7721,7 +7721,7 @@ https://medium.com/p/the-reason-sha-256-is-not-great-at-being-random-59457fbbcf4
   
    
 Imaginary Numbers Cannot Exist. Why Mathematics Must Abandon the Square Root Symbol. Part 1/5   
-  ------  
+------
 https://medium.com/p/imaginary-numbers-cannot-exist-why-mathematics-must-abandon-the-square-root-symbol-b23fe7b22212  
 /r/UncensoredScience  
 /u/Alehti  
@@ -7729,7 +7729,7 @@ https://medium.com/p/imaginary-numbers-cannot-exist-why-mathematics-must-abandon
   
    
 What is the Smallest Possible Shape in the Universe?   
-  ------  
+------
 https://medium.com/p/what-is-the-smallest-possible-shape-in-the-universe-865e2415573c  
 /r/UncensoredScience  
 /u/Alehti  
@@ -7737,7 +7737,7 @@ https://medium.com/p/what-is-the-smallest-possible-shape-in-the-universe-865e241
   
    
 The Speed of Light is Zero Meters Per Second: Crack Pottery, as Some Would Call It. I Call it Adapting to Change.   
-  ------  
+------
 https://gitresearch.org/the-speed-of-light-is-zero-meters-per-second-979da182280d  
 /r/UncensoredScience  
 /u/Alehti  
@@ -7745,7 +7745,7 @@ https://gitresearch.org/the-speed-of-light-is-zero-meters-per-second-979da182280
   
    
 I did have the first vaccine though. But since Americans are most deficient in Vitamin D and Niacin (B3) then the logical thing would be to take it. I had a slight runny nose.   
-  ------  
+------
 https://i.redd.it/hujzrhhhrw491.jpg  
 /r/UncensoredScience  
 /u/Alehti  
@@ -7753,7 +7753,7 @@ https://i.redd.it/hujzrhhhrw491.jpg
   
    
 This is an actual thing. Every "scientific" site praised the breakthrough. I'm sure many others were asking wtf is going on with the editors.   
-  ------  
+------
 https://i.redd.it/81j6kwnw7s491.jpg  
 /r/UncensoredScience  
 /u/Alehti  
@@ -7761,7 +7761,7 @@ https://i.redd.it/81j6kwnw7s491.jpg
   
    
 A strange time we live in when things like this get you banned from mathematics subs. You cannot refute simple mathematics yet there is a group attempting to do this.   
-  ------  
+------
 https://vimeo.com/714870964  
 /r/UncensoredScience  
 /u/Alehti  
@@ -7769,7 +7769,7 @@ https://vimeo.com/714870964
   
    
 Perhaps only one extraction is needed to find if it is a black hole.   
-  ------  
+------
 While the point of the matter is to verify what is a black hole and what is not; the tedious verification is critical to understand what we're looking at. Here is the process for the below.  
   
 ![](https://preview.redd.it/22w0y956vq491.png?width=236&format=png&auto=webp&s=a32b02ad6d8256f46133e77459fa489abf44d331?raw=true)
@@ -7829,7 +7829,7 @@ More unknowns:
   
    
 Extracting a Black Hole is Not a One-Size Fits All. Notice: the Checking of Stars; Referencing; and Various Means of Extraction | This Was Checked to Produce a Black Hole Many Times; in the End, it Only Needs Two Extraction Layers to Produce a the Photo.   
-  ------  
+------
 https://vimeo.com/718942433  
 /r/UncensoredScience  
 /u/Alehti  
@@ -7837,7 +7837,7 @@ https://vimeo.com/718942433
   
    
 I don't think anyone understands that the more they delude themselves about this; the longer it's going to take us to actually have a generation explore the cosmos. But hey, these memes write themselves.   
-  ------  
+------
 https://v.redd.it/evjqumt28m491  
 /r/UncensoredScience  
 /u/Alehti  
@@ -7845,7 +7845,7 @@ https://v.redd.it/evjqumt28m491
   
    
 What Would Reddit Look Like?   
-  ------  
+------
 ![](https://i.imgur.com/IHKAdhr.png?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
@@ -7853,7 +7853,7 @@ What Would Reddit Look Like?
   
    
 I'll bring you a conclusion of an investigation with the help of memes. (I call on the FBI to do a public investigation of NASA for crimes against the U.S., and Humanity)   
-  ------  
+------
 &#x200B;  
   
 *Processing img m6hcosyykj491...*  
@@ -7909,7 +7909,7 @@ And of course, what is [social gaslighting?](https://medium.com/p/7463b1d0ab63)
   
    
 PEMi Forensics Tutorial   
-  ------  
+------
 You can use your own ELA software, or you can use the one here: [https://29a.ch/photo-forensics/#error-level-analysis](https://29a.ch/photo-forensics/#error-level-analysis)  
   
 Here is what you'll see.  
@@ -8003,7 +8003,7 @@ So. There. You can do it yourself. Watch the comments and the down votes though.
   
    
 Did you know mathematics is not astrology but everyone appears to treat it as such? Did you know there are PhDs in mathematics that use the same method for beginners and treat it as a law?   
-  ------  
+------
 &#x200B;  
   
 *Processing img c6bbe8oy8h491...*  
@@ -8067,7 +8067,7 @@ This does not mean they're wrong. It simply means mathematics is not the "astrol
   
    
 The Recoloring of Mars Using A.I.   
-  ------  
+------
 I used A.I. to recolor the Martian atmosphere as we only get black and white photos back; or we get the photos that a human has designed the presets for. The amazing thing with A.I. is that it trains on data we would never imagine. There are certain degrees to which correspond to the pixel's neighboring pixels as well as the amount of GAMMA and Infrared. Here are just a few from my article that garnished over 40k full reads.  
   
 Full article here: [https://gitresearch.org/mars-c1f2f592ea81?sk=d946defa74acf0f688514ded2f25bdfc](https://gitresearch.org/mars-c1f2f592ea81?sk=d946defa74acf0f688514ded2f25bdfc) (30+ more photos plus curation)  
@@ -8111,7 +8111,7 @@ Full article here: [https://gitresearch.org/mars-c1f2f592ea81?sk=d946defa74acf0f
   
    
 Do You Actually Want to Solve the Climate Crisis? | The Scientific World is Filled With Scams Just as Any Other Industry.   
-  ------  
+------
 https://medium.com/gitresearch/do-you-actually-want-to-solve-the-climate-crisis-31a3b4908495?sk=85aade990a9d5b1ee74310cf79162954  
 /r/UncensoredScience  
 /u/Alehti  
@@ -8119,7 +8119,7 @@ https://medium.com/gitresearch/do-you-actually-want-to-solve-the-climate-crisis-
   
    
 Electromagnetic Waves and Birds | A One Page Excerpt from The Framework of the Universe which CERN Deemed as "Spam." Imagine that.   
-  ------  
+------
 https://i.redd.it/tsajwpavjg491.gif  
 /r/UncensoredScience  
 /u/Alehti  
@@ -8127,7 +8127,7 @@ https://i.redd.it/tsajwpavjg491.gif
   
    
 The Logical Method in Fighting Misinformation.   
-  ------  
+------
 https://medium.com/gitresearch/the-logical-method-in-fighting-misinformation-7ce123ba19bd?sk=bf019ec3daff56ee377b6c6149a035de  
 /r/UncensoredScience  
 /u/Alehti  
@@ -8135,7 +8135,7 @@ https://medium.com/gitresearch/the-logical-method-in-fighting-misinformation-7ce
   
    
 Lügenpresse und Falschmeldung! Are Back Along with the Nazis.   
-  ------  
+------
 https://medium.com/gitresearch/nasa-has-attempted-to-scrub-the-internet-of-evidence-against-them-on-4-occasions-761c0bc1f689?sk=21fc40aa5a8567a52c44077d008fe287  
 /r/UncensoredScience  
 /u/Alehti  
@@ -8143,7 +8143,7 @@ https://medium.com/gitresearch/nasa-has-attempted-to-scrub-the-internet-of-evide
   
    
 What is Social Gas Lighting and How Can it Be Stopped? The Method to Help Society.   
-  ------  
+------
 https://medium.com/gitresearch/what-is-social-gas-lighting-and-how-can-it-be-stopped-7463b1d0ab63?sk=592a34181eaf6491da57c4173ed3db7d  
 /r/UncensoredScience  
 /u/Alehti  
@@ -8151,7 +8151,7 @@ https://medium.com/gitresearch/what-is-social-gas-lighting-and-how-can-it-be-sto
   
    
 Mars Does Not Have a Doorway and the Articles Debunking it Are Just as Nonsensical.   
-  ------  
+------
 https://medium.com/gitresearch/mars-does-not-have-a-doorway-and-the-articles-debunking-it-are-just-as-nonsensical-fcd34eeef5fc?sk=1362c68268dbdc20fa0d84c1c56b9d35  
 /r/UncensoredScience  
 /u/Alehti  
@@ -8159,7 +8159,7 @@ https://medium.com/gitresearch/mars-does-not-have-a-doorway-and-the-articles-deb
   
    
 1. The sun never has a light bulb shape | 2. The origin of light is always coming from behind the astronaut | 3. Why did they need so many photos of the astronaut's shadow? | You only need one piece of strong evidence to disprove something and the moon landing has hundreds. Conspiracy Hypothesis.   
-  ------  
+------
 https://v.redd.it/bweiwnxgxf491  
 /r/UncensoredScience  
 /u/Alehti  
@@ -8167,7 +8167,7 @@ https://v.redd.it/bweiwnxgxf491
   
    
 The time has come..... the day is.... 6/6/6 (it's just a joke, lol)   
-  ------  
+------
 ![](https://i.redd.it/gynhkyf5ly391.png?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
@@ -8175,7 +8175,7 @@ The time has come..... the day is.... 6/6/6 (it's just a joke, lol)
   
    
 I've had enough of people using schizophrenia and bipolar as an attack. I am proud of my bipolar. I may seem erratic but I can type up to 40,000 words within a work day which is 16 hours. Index Laws. Order of Exponents/Operations. You've been doing it wrong for 200 years due to peer pressure.   
-  ------  
+------
 https://v.redd.it/83t2bwme3x391  
 /r/UncensoredScience  
 /u/Alehti  
@@ -8183,7 +8183,7 @@ https://v.redd.it/83t2bwme3x391
   
    
 This gets me the 3rd most hate because the Einstein worshipers think I am attempting to disprove him; while those in quantum and other get angry because it ruins their entire argument they've built against Einstein. Me? Out of 80k participants: my score was near perfect; most failed. It was a mess.   
-  ------  
+------
 ![](https://i.redd.it/ioxmjyirpu391.png?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
@@ -8191,7 +8191,7 @@ This gets me the 3rd most hate because the Einstein worshipers think I am attemp
   
    
 How many of these do you know? (6-5-22)   
-  ------  
+------
 1. did you know the square root of √ -1 is written as  -1^0.5 as that is the true and proper way to denote the inverse of a square. It is 1 divided by the power. If you rose a number to the 4th power, then your inverse would be 1/4 = x^0.25.  
 2. did you know there was a method that was meant only to be used in the beginning stages of learning arithmetic, but there are PhD students that believe it is a law? This is that you must add parentheses before adding. You absolutely never add anything to an equation, ever.  
 3. did you know that -5^2 and -1^0.5 are still negative numbers because of the order of exponents?  
@@ -8206,84 +8206,14 @@ We'll save the other one for later.
 6/5/2022, 11:52:30 AM  
   
    
-Public Resource License   
-  ------  
-This license has had its  fair  share of  gaslighting  and  was  
-blocked on Google.  I  complained,  they fixed it,  now  it  is  
-nowhere to be found again. Imagine that.  
-  
-  
-PURPOSE OF THE PUBLIC RESOURCE LICENSE:  
-  
-1. STUDENT INVENTIONS ARE PATENTED BY UNIVERSITIES BECAUSE THOSE  
-UNIVERSITIES  STATE  THAT  THEY ALLOWED THE STUDENT TO USE THEIR  
-FACILITIES WHICH RESULTED IN  THE   INVENTION. I  ARGUE STUDENTS  
-PAID FOR THOSE FACILITIES AND THE UNIVERSITIES  HAVE NO RIGHT TO  
-PATENT  THEIR STUDENTS WORK.  HOW  IS THAT SET  UP  FOR SUCCESS?  
-ALSO.  THE  GOVERNMENT  CANNOT  PATENT,   AND THE  GOVERNMENT IS  
-RESPONSIBLE  FOR MUCH  OF   THE FINANCING  AND FUNDING   FOR ALL  
-UNIVERSITIES.  
-  
-2.  MANY  CORPORATIONS   HAVE  BEEN PATENTING SOFTWARE INVOLVING  
-EVERY FUNCTION OF SOFTWARE AND  HAVE CURRENTLY BEEN GRANTED OVER  
-500,000  PATENTS  DESPITE   WIPO'S   POLICY   AGAINST  PATENTING  
-SOFTWARE. THESE CORPORATIONS ARE ALSO TARGETING OPEN SOURCE.  
-  
-3. DRUGS, PRESCRIPTIONS,  MEDICAL    METHODS, LANGUAGES,  FONTS,  
-ARTIFACTS,    LIFE,   TECHNICAL   METHODS,  SOFTWARE,  LANGUAGE,  
-FUNCTIONS, EXPRESSIONS, FORMULAS,  COMPOUNDS, ELEMENTS,  MEDICAL  
-TECHNIQUES, AND THOSE ALIKE WERE  SUPPOSED TO BE RESTRICTED FROM  
-PATENTS,  COPYRIGHT, WITH SOME RESTRICTED  FROM TRADEMARKS. THIS  
-HAS  NOT  BEEN THE  CASE.   SINCE  ALL  THE ABOVE   CAN BE UNDER  
-CONTRACT, LICENSE, AND PATENTS, THIS LICENSE SHALL  REMAIN VALID  
-UNTIL  ALL OF THOSE ARE   PUT  INTO THE  PUBLIC   DOMAIN WITH NO  
-FURTHER COPYRIGHT OR PATENT ELIGIBILITY.  
-  
-4. THE RESTRICTION  OF   RESEARCH MUST BE ELIMINATED.  THE ROYAL  
-SOCIETY  AND  THEIR INSTITUTIONS SHALL  NO LONGER HAVE ANY RIGHT  
-OVER  IT. THE COLLECTIVENESS OF   HUMANS  EVALUATING  EACH OTHER  
-BASED ON A  NEW   SCIENTIFIC METHOD BY GITRESEARCH   SHALL ALLOW  
-CONGRUITY   IN  THE COMMUNITY.  50K   HUMANS  WITHOUT  A COLLEGE  
-EDUCATION WILL BE ABLE  TO ADVANCE DECADES PASSED   500K COLLEGE  
-GRADUATES IN A MATTER OF YEARS COMPARED TO THE SCIENTIFIC METHOD  
-WHICH  CAN TAKE UP  TO  THREE MONTHS FOR EVALUATION. SCIENCE AND  
-RESEARCH SHOULD BE RELEASED THE DAY OF FOR REVIEW OF THE PUBLIC.  
-REFUTATIONS WOULD BE CLOSED UNTIL RESEARCH CONCLUDES.  
-  
-5. RESEARCHERS ARE BECOMING FATIGUED WITH THE OVER-PROPERNESS OF  
-HAVING  TO  WRITE CRYPTIC  PAPERS  IN A LANGUAGE NO ONE LIKES TO  
-READ. FUCK IT. STOP BEING  OFFENDED  BECAUSE THE QUEEN  DOES NOT  
-LIKE YOUR LANGUAGE. WHILE HALF OF  THE RULES  WILL BE KEPT. MUCH  
-OF   IT WILL BE  MUCH   MORE LENIENT. DATA WILL ALSO   GO INTO A  
-DIFFERENT SECTION FOR EASY ACCESS.  
-  
-6. RESEARCH WILL AUTOMATICALLY PULL  CITATIONS FROM  THE CENTRAL  
-DATABASE.  RESEARCHERS THAT  RECEIVE PUBLIC  ACCEPTANCE  WILL BE  
-AWARDED  THEIR  $TAG  TO   PULL   THEIR  DISCOVERY   OR RESEARCH  
-DEVELOPMENT.  
-  
-7.  NO COMMITTEE, OR GATEKEEPERS, OR  LEADERS, OR APPROVERS WILL  
-BE A PART OF  GITRESEARCH.  THIS PROJECT SHALL  ALLOW  HUMANS TO  
-GOVERN VIA CONSENSUS.  
-  
-8. NO HUMAN SHALL BE EXCLUDED FROM CONTRIBUTION.  
-  
-9. THE OPEN SOURCE OF SOFTWARE   DEVELOPMENT  HAS PROVEN  A HUGE  
-SUCCESS. CRYPTOCURRENCY WHICH IS AN OPEN-SOURCE PROJECT IS WORTH  
-NEARLY  TWO TRILLION DOLLARS.  MORESO THAN ANY   OTHER SOFTWARE.  
-  
-  
-In such, this license was created from the seeds from which they  
-themselves have sown.  
-  
-  
-  
+```Public Resource License   
+------
+
 [BEGINNING OF LICENSE]  
   
 02/22/2022  
   
-   ----------------------------------------------------------   
-  ------  
+----------------------------------------------------------------
   
   
 PUBLIC RESOURCE LICENSE  
@@ -8337,8 +8267,7 @@ Research. The Research may be posted anywhere online verbatim so
 long  as the branch  Authorship  is  displayed along    with the  
 disclaimer in front of any content.  
   
-   --------------DISCLAIMER SECTION START--------------------   
-  ------  
+--------------------DISCLAIMER SECTION START--------------------   
   
 RESEARCH DISCLAIMER:  
   
@@ -8352,8 +8281,7 @@ gitresearch.org/license.   Ignorance  of  this license  does not
 allow you to disavow it. By  using  this Research, you  agree to  
 this license.  
   
-   -------------LINE FOR ORGANIZATION ONLY-------------------   
-  ------  
+-------------------LINE FOR ORGANIZATION ONLY-------------------   
   
 AUTHORS WORK DISCLAIMER:  
   
@@ -8371,14 +8299,12 @@ license  at  gitresearch.org/license.  Ignorance of this license
 does not  allow you to disavow  it.  By using this Research, you  
 agree to this license.  
   
-   -------------LINE FOR ORGANIZATION ONLY-------------------   
-  ------  
+-------------------LINE FOR ORGANIZATION ONLY-------------------   
   
 ALTERNATIVE DISCLAIMER: IF THE TWO ABOVE ARE TOO RESTRICTIVE IN  
 THEIR DESIGN, YOU MAY USE:   
   
-   ---------------CONTINUE LICENSE TEXT----------------------   
-  ------  
+---------------------CONTINUE LICENSE TEXT----------------------
   
 LICENSE MAY NOT BE REMOVED FROM  RESEARCH LEST EVERY COUNTRY AND  
 JURISDICTION VOTE UNANIMOUSLY TO REMOVE THIS  LICENSE. THE PARTY  
@@ -8436,8 +8362,7 @@ THOSE COUNTRY’S  LEGAL SYSTEM, THEN   THIS DECISION BY THE COURT
 SHALL ALSO VOID ANY PATENT,  TRADEMARK,  COPYRIGHT,  AND LICENSE  
 WHICH CONTAINS SIMILAR LANGUAGE OR CONCEPTS.  
   
-   -------------LINE FOR ORGANIZATION ONLY-------------------   
-  ------  
+-------------------LINE FOR ORGANIZATION ONLY-------------------   
   
 ORGANIZATION  IN THE   INSTANCES WITH “LINE FOR...PURPOSES ONLY”  
 REFERS TO  THE ACT OF  ORGANIZING  TEXT FOR A NEATER APPEARANCE.  
@@ -8489,8 +8414,7 @@ DEFINED   THE  USE    OF    FUNCTIONS  WITHIN     THIS CONTRACT.
   
 END OF SECTION.  
   
-   -------------LINE FOR ORGANIZATION ONLY-------------------   
-  ------  
+-------------------LINE FOR ORGANIZATION ONLY-------------------   
   
 ADDITIONAL TERMS FOR PUBLIC RESOURCE LICENSE:  
   
@@ -8510,8 +8434,7 @@ CONTRIBUTES,   CONCEPTUALIZES, CREATES,   INVENTS, DISCOVERS ANY
 RESEARCH  WITHIN. AUTHORS MUST BE  NOTED  INDIVIDUALLY  TO THEIR  
 WORK AND ACCOMPLISHMENTS. AND MUST REGISTER  AT GITRESEARCH.ORG.  
   
-   -------------LINE FOR ORGANIZATION ONLY-------------------   
-  ------  
+-------------------LINE FOR ORGANIZATION ONLY-------------------   
   
 RESEARCH       IN   THIS       LICENSE      IS     DEFINED   AS:  
   
@@ -8533,8 +8456,7 @@ IMAGES,   ACADEMIC  PAPER,    GRAPHICS, ARTIFICIAL INTELLIGENCE,
 MACHINE LEARNING, METAPHYSICS,  PSYCHOLOGY,  TREATMENT,  WRITTEN  
 WORKS, HARDWARE, INVENTIONS, UI/UX;  
   
-   -------------LINE FOR ORGANIZATION ONLY-------------------   
-  ------  
+-------------------LINE FOR ORGANIZATION ONLY-------------------   
   
 THIS LICENSE GRANTS EVERY LIVING HUMAN THE RIGHT TO  THE USE AND  
 ACCESS OF THE RESEARCH DEFINED  WITHIN IN ANY MANNER  AS LONG AS  
@@ -8584,8 +8506,7 @@ CHANGE ACCORDING TO THE POLICIES  SET  FORTH BY THE VOTERS. THIS
 LICENSE  SHALL NOT BE INFRINGED BY  ANY SUCH  PROCESS OR  BY ANY  
 PARTY FOR ANY REASON.  
   
-   -------------LINE FOR ORGANIZATION ONLY-------------------   
-  ------  
+-------------------LINE FOR ORGANIZATION ONLY-------------------   
   
 THE  USE  OF  ANY  RESEARCH   PROTECTED BY THIS  PUBLIC RESOURCE  
 LICENSE MAY NOT BE USED TO:  
@@ -8602,8 +8523,7 @@ OPPRESSION,   USED  AS   A   (WEAPON | MEANS  OF WAR  |  TOOL OF
 ENSLAVEMENT ) BY ANY (GOVERNMENT |  GROUP  OF HUMANS | GROUP LED  
 BY A HUMAN);  
   
-   -------------LINE FOR ORGANIZATION ONLY-------------------   
-  ------  
+-------------------LINE FOR ORGANIZATION ONLY-------------------   
   
 THIS LICENSE RESTRICTS THIS RESEARCH AND INDIVIDUALLY BY SECTION  
 OR UNIT TO THOSE RESTRICTED BY THE FAIRNESS AND ETHICAL DOCTRINE  
@@ -8660,8 +8580,7 @@ RESTRICTIONS, ADDITIONS, TERMS OR CONDITIONS. THIS LICENSE SHALL
 ACT AS A SECONDARY SUB-LICENSE,  BUT  THIS LICENSE CANNOT HAVE A  
 SUB-LICENSE ATTACHED AFTER THE FACT.  
   
-   -------------LINE FOR ORGANIZATION ONLY-------------------   
-  ------  
+-------------------LINE FOR ORGANIZATION ONLY-------------------   
   
 THE CLAIM TO THE RIGHT OF OWNERSHIP  IS A LEGAL RIGHT  IN WHICH:  
 THE  PATENT, COPYRIGHT, TRADEMARK, AND ALL  OTHER GOVERNMENT AND  
@@ -8695,8 +8614,7 @@ EDUCATION,  AND  THIS  RESEARCH  MAY NEVER FALL BEHIND A PAYWALL
 UNLESS THE AUTHOR IS THE AUTHOR  OF  THE BRANCH OF  RESEARCH AND  
 THE WRITTEN WORKS ARE FURTHER EXPLANATIONS OR COMMENTARY.  
   
-   -------------LINE FOR ORGANIZATION ONLY-------------------   
-  ------  
+-------------------LINE FOR ORGANIZATION ONLY-------------------   
   
 THIS  RESEARCH  IS  A   COLLECTION   OF  WORKS   BY CONTRIBUTORS  
 UNIVERSALLY  WHOSE AUTHORIZATION IS THUSLY GRANTED FOR USE  AS A  
@@ -8738,8 +8656,7 @@ MAINLANDS  OF THE UNITED  STATES OF  AMERICA,   ENGLAND, NORWAY,
 AUSTRALIA, SWITZERLAND,  GERMANY,  DENMARK, CANADA, SOUTH KOREA,  
 JAPAN, FRANCE, NETHERLANDS, SWEDEN, AND NEW ZEALAND.  
   
-   -------------LINE FOR ORGANIZATION ONLY-------------------   
-  ------  
+-------------------LINE FOR ORGANIZATION ONLY-------------------   
   
 ANY RESEARCH WHICH CONTRIBUTES OR IMPROVES THE RESEARCH SHALL BE  
 CONSIDERED RESEARCH IN WHICH  THE RESEARCH WILL BE AUTOMATICALLY  
@@ -8772,8 +8689,7 @@ OF  EMPLOYMENT OR CREDIBILITY.   IN THE  EVENT OF   DISPUTE, THE
 OUTCOME  WHICH  FAVORS  THE  ENTIRE  HUMAN RACE  SHALL SUPERSEDE  
 WITHIN THAT JURISDICTION.  
   
-   -------------LINE FOR ORGANIZATION ONLY-------------------   
-  ------  
+-------------------LINE FOR ORGANIZATION ONLY-------------------   
   
 THIS  AGREEMENT ALLOWS   CORPORATIONS   TO  TAKE    ADVANTAGE OF  
 OTHERWISE FREE RESEARCH  WHICH WOULD NORMALLY HAVE A SIGNIFICANT  
@@ -8807,8 +8723,7 @@ PERCENT PER YEAR FROM  2022.  ALL MONETARY AMOUNTS ARE IN UNITED
 STATES  DOLLAR  (USD,) SHOULD USD  BE UNAVAILABLE, THE MOST USED  
 CURRENCY WORLDWIDE SHALL BE USED.  
   
-   ----------------------------------------------------------   
-  ------  
+----------------------------------------------------------------
   
 RESEARCH  INVOLVING SOFTWARE DOES NOT ADHERE  TO THE RESTRICTION  
 CRITERIA OF REVENUE FOR ANY ORGANIZATION.  
@@ -8864,16 +8779,16 @@ THIS RIGHT SHALL BE REVOKED.
 EXCLUSIVE AUTHORSHIP RIGHTS DO NOT PERTAIN TO THE  FUNCTIONS  OF  
 LANGUAGE,  SYNTAX, CODE, OR ANY FORM OF COMMUNICATION.  
   
- ----------------------------------------------------------  
+----------------------------------------------------------------
  
-    [END]  
+    [END]  ```
 /r/UncensoredScience  
 /u/Alehti  
 6/5/2022, 6:34:32 AM  
   
    
 My Fight with NASA and CERN and the Scientific Method.   
-  ------  
+------
 I extracted this black hole from the Andromeda Galaxy:  
   
 The sentiment immediately shifted, and comments everywhere I uploaded this image claimed that I had used Photoshop to darken the whites and increase the saturation. It was the same comment and method for weeks. The most absurd apps or sites that I would go to. There this comment would immediately appear. I started posting in my subreddits and groups, and this photo automatically got reported within 30 seconds to a minute.   
@@ -8909,7 +8824,7 @@ The black hole image above a few times had over 100 likes. Suddenly it went down
   
    
 The Andromeda Black Hole (2022:Lehti)   
-  ------  
+------
 ![](https://i.redd.it/vj70qm6k7s391.png?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
@@ -8917,7 +8832,7 @@ The Andromeda Black Hole (2022:Lehti)
   
    
 The Introduction to the Unified Theory of Gravity | Open Science | Andrew Lehti | Framework of the Universe | Simplified Concepts.   
-  ------  
+------
 ## GitResearch  
   
 ## We definitely contribute to climate change, but our impact is different from we understand.  
@@ -8962,7 +8877,7 @@ But let us talk about the Theory of Universal Correction. In summation: the Sun 
   
 Gravity is an equal and opposite force. It is why we can obtain orbit only 200 miles (ca. 322 km) above our massive ~8000-mile diameter planet. The opposite force swings the object out of its orbit.  
   
-![](![](https://miro.medium.com/max/700/1*f_yS_0dwVZjVjKBDHSXOJg.png)?raw=true)
+![](https://miro.medium.com/max/700/1*f_yS_0dwVZjVjKBDHSXOJg.png?raw=true)
   
 Imagine, if you will, swinging a child by the arms. While everything on you becomes more attached to you, the objects outside your center of gravity is being pulled away from you.  
   
@@ -9049,7 +8964,7 @@ An ice-age could occur if enough energy (perhaps the energy found in the Earth) 
   
    
 The Collatz Conclusion || The End of Infinite Conjectures   
-  ------  
+------
 https://www.academia.edu/76370515/THE_FINAL_CONJECTURE_PROOF_OF_INFINITE_PATTERNS_AND_REPETITIONS  
 /r/UncensoredScience  
 /u/Alehti  
@@ -9057,7 +8972,7 @@ https://www.academia.edu/76370515/THE_FINAL_CONJECTURE_PROOF_OF_INFINITE_PATTERN
   
    
 The Process of Extracting Black Holes and New Forensic Image Technique for Investigation Using Light Waves That Can Detect Forgery, and A.I. Generated Images.   
-  ------  
+------
 https://www.academia.edu/80460898/The_Process_of_Extracting_Black_Holes_and_New_Forensic_Image_Technique_for_Investigation_Using_Light_Waves_That_Can_Detect_Forgery_and_A_I_Generated_Images  
 /r/UncensoredScience  
 /u/Alehti  
@@ -9065,7 +8980,7 @@ https://www.academia.edu/80460898/The_Process_of_Extracting_Black_Holes_and_New_
   
    
 Time Dilation Equation Miscalculation and Fraudulent Base Study: Academic Investigations.   
-  ------  
+------
 https://www.academia.edu/80582417/Time_Dilation_Equation_Miscalculation_and_Fraudulent_Base_Study_Academic_Investigations  
 /r/UncensoredScience  
 /u/Alehti  
@@ -9073,7 +8988,7 @@ https://www.academia.edu/80582417/Time_Dilation_Equation_Miscalculation_and_Frau
   
    
 THIS ARTICLE REQUIRES TIME AND ENDURANCE BUT IS NECESSARY, THIS IS: A Curation in Order to Understand the World Today and How We Can Fix it | I Could Never Imagine Going Through Life Never Understanding the World like the World Does Today || 36 short form articles with free access tags.   
-  ------  
+------
 https://medium.com/gitresearch/a-curation-in-order-to-understand-the-world-today-and-how-we-can-fix-it-dac1a4880df5?sk=7e552a35c43a75e2fd422da3573c785c  
 /r/UncensoredScience  
 /u/Alehti  
@@ -9081,7 +8996,7 @@ https://medium.com/gitresearch/a-curation-in-order-to-understand-the-world-today
   
    
 OPEN SCIENCE YT | Get me the ancient aliens guy and not because I believe aliens helped us, but because I think we were far more advanced at one point, but some 2000 year old terrorist organization (like the past 2000 years) has kept us from advancing by destroying knowledge so they can keep power.   
-  ------  
+------
 https://www.youtube.com/watch?v=nr4Ql0BY5kI  
 /r/UncensoredScience  
 /u/Alehti  
