@@ -7,7 +7,6 @@ https://www.youtube.com/watch?v=Lunna3ApmqE
   
    
 WWII America vs. Nationalists | Star Wars | A Terrorist Group Introduced such stigma on Conspiracy Theories that you refuse to listen while disregarding the fact that you're unknowingly aiding enemy conspirators to commit treason against the U.S. | I can't teach you 1000s of hrs of study in a post.   
-
 ------
 https://youtube.com/watch?v=1O-NwCbr-ic  
 /r/UncensoredScience  
@@ -447,7 +446,7 @@ Disproved their god. Proved from 10,000 hours of prior study that accidentally c
    
 Oh? Open Source is evil? Unity is evil? All humans getting the vote of the executive branch to prevent dictatorships, fruads, and bribes is evil? Public voting is evil because they demand privacy to cheat the system? Fuck that.   
 ------
-https://i.imgur.com/LChebPl.jpg  
+![](https://i.imgur.com/LChebPl.jpg?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
 8/11/2022, 7:49:01 PM  
@@ -455,7 +454,7 @@ https://i.imgur.com/LChebPl.jpg
    
 Thank Zeus Screenshots Exists.   
 ------
-https://i.imgur.com/cw22uNS.jpg  
+![](https://i.imgur.com/cw22uNS.jpg?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
 8/11/2022, 6:20:11 PM  
@@ -463,7 +462,7 @@ https://i.imgur.com/cw22uNS.jpg
    
 Never has been so easy to veer through the banthashit to see Palpatine's strings on Both Sides. The division between people and the stubbornness they've installed in both a sides not to find an inch of credibility to the other side.   
 ------
-https://i.redd.it/6cmv9p8w36h91.jpg  
+![](https://i.redd.it/6cmv9p8w36h91.jpg?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
 8/11/2022, 12:44:00 PM  
@@ -477,7 +476,7 @@ https://i.redd.it/6cmv9p8w36h91.jpg
   
 # See. I gave you a warning. Don't say I don't have a heart:  
   
-https://reddit.com/link/wlxg8k/video/1zvy2hjc44h91/player  
+![](https://reddit.com/link/wlxg8k/video/1zvy2hjc44h91/player?raw=true)
   
 ***And if some of you aren't ready to accept this truth. I scattered videos throughout to distract you until your curiosity gnaws at you. But this...***  
   
@@ -487,17 +486,17 @@ PLUS! If you wanted to make fun of me at your church, here you go. Hah. I will g
   
 If you're new and you're wondering who posts in this subreddit?  
   
-https://preview.redd.it/yqiricro74h91.jpg?width=853&format=pjpg&auto=webp&s=c3e1b97d6476b76d99226f265965d7f9b697a555  
+![](https://preview.redd.it/yqiricro74h91.jpg?width=853&format=pjpg&auto=webp&s=c3e1b97d6476b76d99226f265965d7f9b697a555?raw=true)
   
 ***Oh. The images may be to feed into humans morbid curiosity. Hey. Old Bibles and stories had the weirdest photos. Maybe it is why they read them more ha.***  
   
-[\\"Humans fucking love cringe.\\" No, idea why.](https://preview.redd.it/vjrre2dy54h91.jpg?width=540&format=pjpg&auto=webp&s=cb5093280e2cf9119fbbc04e1851547690682680)  
+[\\"Humans fucking love cringe.\\" No, idea why.](![](https://preview.redd.it/vjrre2dy54h91.jpg?width=540&format=pjpg&auto=webp&s=cb5093280e2cf9119fbbc04e1851547690682680?raw=true)
   
 *If you want the very short version, skip to the memes at the end:*  
   
 *Anyway. This is what most religious people think I look like and wear because it is such a crazy fucking idea to doubt the existence of their sky daddy.*  
   
-https://preview.redd.it/w8w66g2ld4h91.jpg?width=540&format=pjpg&auto=webp&s=6129e0218cbce18c27068271973f8b864b8b72f2  
+![](https://preview.redd.it/w8w66g2ld4h91.jpg?width=540&format=pjpg&auto=webp&s=6129e0218cbce18c27068271973f8b864b8b72f2?raw=true)
   
 *I reconstructed many parts of Ancient Latin (just wait, I’ll tell you why the Hebrew and Greek are falsified via the highest crime in religion possible by the entire Catholic Religion; from which all your Bibles have stemmed from.)*  
   
@@ -535,7 +534,7 @@ https://preview.redd.it/w8w66g2ld4h91.jpg?width=540&format=pjpg&auto=webp&s=6129
   
 This is really what you're looking at when you look at every god.  
   
-https://preview.redd.it/hqtmbn0c64h91.jpg?width=720&format=pjpg&auto=webp&s=50013d074777f200f7e013f5f7a05654533d8490  
+![](https://preview.redd.it/hqtmbn0c64h91.jpg?width=720&format=pjpg&auto=webp&s=50013d074777f200f7e013f5f7a05654533d8490?raw=true)
   
 Any word sounding like Suis/Zeus/Deus meant the Sky.Any word sounding like peter, pater, pitar, or Jupiter meant the father.  
   
@@ -549,7 +548,7 @@ The Sky Father. Aka: The Heavenly Father.
   
 # My absolute favorite:  
   
-[Hail, pets.](https://preview.redd.it/91xpsyag64h91.jpg?width=602&format=pjpg&auto=webp&s=ef038c0dcc50cf7f870be9027eaf7e7bb1dc9647)  
+[Hail, pets.](![](https://preview.redd.it/91xpsyag64h91.jpg?width=602&format=pjpg&auto=webp&s=ef038c0dcc50cf7f870be9027eaf7e7bb1dc9647?raw=true)
   
 *ALL gods, including the first Hindu/Buddhist God came from Dyaus Pitar which came from Dyeus Phtr.*  
   
@@ -563,7 +562,7 @@ You can connect all gods when you study the etymology of most languages. Since w
   
 EDIT: When you stumble upon the true name of God.  
   
-https://reddit.com/link/wlxg8k/video/xcjcjzqw64h91/player  
+![](https://reddit.com/link/wlxg8k/video/xcjcjzqw64h91/player?raw=true)
   
 And you find a lot of the same similarities with the Gods in North and South America  
   
@@ -579,7 +578,7 @@ One of the neatest is the presence of Loki throughout the work: Loki | Coyote | 
   
 Nezha Eshu Enki Elegua Lugh Daucina Daucina Heyoka Amaguq Mercury Maya Momus Wisakedjak Sibu  
   
-[ITERATION: This is the dumbest thing I've done. But the fucking post looked way too fucking technical for normies to read.](https://preview.redd.it/oz8p7wjr94h91.jpg?width=405&format=pjpg&auto=webp&s=07b0b3c0d37467e8800832a0f0159d51d39071f3)  
+[ITERATION: This is the dumbest thing I've done. But the fucking post looked way too fucking technical for normies to read.](![](https://preview.redd.it/oz8p7wjr94h91.jpg?width=405&format=pjpg&auto=webp&s=07b0b3c0d37467e8800832a0f0159d51d39071f3?raw=true)
   
 Jóhonaaʼéí | Jehovah  
   
@@ -589,7 +588,7 @@ Juraca/n Jupiter Anansi Azeban
   
 It could be coincidence, but I find it hard to believe that no one has ever put those together.  
   
-https://reddit.com/link/wlxg8k/video/n0r8c50d54h91/player  
+![](https://reddit.com/link/wlxg8k/video/n0r8c50d54h91/player?raw=true)
   
 The two swastikas when put together make a cross.  
   
@@ -597,7 +596,7 @@ The swastika/ Manji IS NOT a Buddhist or Vedic Symbol, it is an ancient symbol b
   
 The Greek story of creation is very similar to the story of Genesis.  
   
-https://preview.redd.it/ibsll8ny84h91.jpg?width=540&format=pjpg&auto=webp&s=182be987331b3b9a5343049ced3109283c2853dd  
+![](https://preview.redd.it/ibsll8ny84h91.jpg?width=540&format=pjpg&auto=webp&s=182be987331b3b9a5343049ced3109283c2853dd?raw=true)
   
 By the way. I’M THE ONLY ONE IN THIS WORLD THAT HAS transcribed the original Amiatinus; I love when people assume I do not know what I am talking about because it interferes with their bias. I am sorry that I do not promote genocide like the Catholics who have been discovered to be every enemy that America has ever had as well as the Nazis, but hey; the oldest book we have of the Bible that is complete. I removed it from sale because I don’t want another cult to form.  
   
@@ -605,13 +604,13 @@ Their Vatican Greek Holy Book which is 500 years older as they claim was found i
   
 **Not only the above, but:**  
   
-https://preview.redd.it/j76sfvwh54h91.jpg?width=720&format=pjpg&auto=webp&s=4fe83cc93b4684dfbe3d1291560c29b5882c467d  
+![](https://preview.redd.it/j76sfvwh54h91.jpg?width=720&format=pjpg&auto=webp&s=4fe83cc93b4684dfbe3d1291560c29b5882c467d?raw=true)
   
 It had the amazing ability of having every single edit that the Catholics made into that same book. Psalms was curated by Saint Jerome, and many parts were finished. Bede’s Bible numbered the versus, but somehow, the ancient Tanakh had not been changed since 200BC or whenever the Rabbi claim their last removals were. So. How did Saint Jerome curate and write parts of Psalms hundreds of years after? How did the removals of the Amiatinus to late Latin Vulgate end up matching both?  
   
 The real oldest Greek and Hebrew bible appeared around the 12th century during the time of the insane Popes.  
   
-https://preview.redd.it/llgu7kkx74h91.jpg?width=360&format=pjpg&auto=webp&s=ab6c5754a94b756c8c0fd02edce7121fc15aa846  
+![](https://preview.redd.it/llgu7kkx74h91.jpg?width=360&format=pjpg&auto=webp&s=ab6c5754a94b756c8c0fd02edce7121fc15aa846?raw=true)
   
 Also. The whole ten percent thing is a lie. It was not “and he gave him a tithe of all.” First of all, Abraham took anything. Why would it go from first person to second person?  
   
@@ -619,7 +618,7 @@ The king was still speaking, and he said, “and blessed be our God of the highe
   
 At the end of the Bible, they call Jesus’ name and he appeared before them. And that was it.  
   
-https://reddit.com/link/wlxg8k/video/gvfwbrvn54h91/player  
+![](https://reddit.com/link/wlxg8k/video/gvfwbrvn54h91/player?raw=true)
   
 1. The Lamb of God is all throughout the Bible in places he never was shown to be. For instance, the burning bush? No. Agni, the Messenger of God and Keeper of Human Sacrifice burst out of flame and appeared to Moses.  
 2. Lucifer is the noon day star aka THE SUN.  
@@ -651,9 +650,9 @@ Stop this nonsense.
   
 &#x200B;  
   
-https://preview.redd.it/n4uprkft24h91.jpg?width=1277&format=pjpg&auto=webp&s=4dba0629ba1234e7c847d8b922df1c0ddedef1e5  
+![](https://preview.redd.it/n4uprkft24h91.jpg?width=1277&format=pjpg&auto=webp&s=4dba0629ba1234e7c847d8b922df1c0ddedef1e5?raw=true)
   
-https://preview.redd.it/fmpcr3sb94h91.jpg?width=720&format=pjpg&auto=webp&s=e3a0a1805ab01d2557cce04490ede9f655889ac2  
+![](https://preview.redd.it/fmpcr3sb94h91.jpg?width=720&format=pjpg&auto=webp&s=e3a0a1805ab01d2557cce04490ede9f655889ac2?raw=true)
   
 If there is a paywall, just open it in a new private window:  
   
@@ -819,7 +818,7 @@ https://v.redd.it/7q1py8f1q0h91
    
 this is how they divide you, with fear that will literally never affect any of you reading this most likely. Always be sure to cancel out useless fear.   
 ------
-https://i.redd.it/8v99pchbp0h91.jpg  
+![](https://i.redd.it/8v99pchbp0h91.jpg?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
 8/11/2022, 12:01:44 AM  
@@ -835,7 +834,7 @@ https://v.redd.it/qz38oj4xn0h91
    
 If I read the news, it has to be AP, at least until it starts being negative. These stations purposely divide and never work on a solution that benefits everyone. demand this: 90k show up at the border w/o adults. Great survival and directional skills? really 200k parents abandon their children/yr?   
 ------
-https://i.redd.it/y2litq10d0h91.gif  
+![](https://i.redd.it/y2litq10d0h91.gif?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
 8/10/2022, 10:31:16 PM  
@@ -859,7 +858,7 @@ Possibly the dumbest idiots on this planet, or you're looking at a genuine propa
    
 The difference between Google and Bing. Bing has been gaining my trust more. They're least likely to show you propaganda. I still use all three (a searx.space server.) Over 9 times I've threatened Google with fraudulently removing all links relevant to the license. They put it back for a day or so.   
 ------
-https://i.imgur.com/QEydMHX.jpg  
+![](https://i.imgur.com/QEydMHX.jpg?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
 8/10/2022, 8:19:14 PM  
@@ -959,7 +958,7 @@ https://vault.fbi.gov/UFO
    
 There was a kid in high school and his solution to everything was, "Nuke 'em" and that's exactly what quarter of the country would say. don't... don't give them the launch codes lol.   
 ------
-https://i.redd.it/q0m32d6f5yg91.jpg  
+![](https://i.redd.it/q0m32d6f5yg91.jpg?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
 8/10/2022, 3:03:19 PM  
@@ -1015,7 +1014,7 @@ I am a person that believes in transparency. I tell you what I am up to. I do no
    
 The people ruining Reddit, the US, half the world, are of course... The gas lighters.   
 ------
-https://i.imgur.com/NtFP36m.jpg  
+![](https://i.imgur.com/NtFP36m.jpg?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
 8/10/2022, 10:07:52 AM  
@@ -1023,7 +1022,7 @@ https://i.imgur.com/NtFP36m.jpg
    
 Bots are traceable. Sales of downvotes are tracked. MOD history of post deletion is kept. And it's weird why the English contact for the BND is zentrale(a)bundesnachrichtendienst.de while the correct email is on most other languages: zentrale(a)bnd.bund.de; so weird. 👩‍💻   
 ------
-https://i.imgur.com/XXBdsJT.jpg  
+![](https://i.imgur.com/XXBdsJT.jpg?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
 8/10/2022, 8:46:49 AM  
@@ -1071,7 +1070,7 @@ And just a reminder. A cop does not have to disclose to you if they are a cop if
    
 Get ready everyone   
 ------
-https://i.redd.it/jymbklekorg91.jpg  
+![](https://i.redd.it/jymbklekorg91.jpg?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
 8/10/2022, 3:24:15 AM  
@@ -1190,7 +1189,7 @@ Posts
    
 There's a lot more to this list but this should suffice. Though it is a very small list, you should know almost every terrible thing that America has ever done have been from the Catholics.   
 ------
-https://i.redd.it/a7x4o05y0tg91.jpg  
+![](https://i.redd.it/a7x4o05y0tg91.jpg?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
 8/9/2022, 9:45:30 PM  
@@ -1280,7 +1279,7 @@ There is a lot more to this, I just haven't added it to this chart yet.
    
 Stop fucking with the rights of women, and humans in general or else we'll take away your right to worship fairytales in delusion. You know. Most would be sent to the insane asylum had someone made the same religions in a world where religion never existed.   
 ------
-https://i.redd.it/p1ph34amprg91.jpg  
+![](https://i.redd.it/p1ph34amprg91.jpg?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
 8/9/2022, 5:35:59 PM  
@@ -1288,7 +1287,7 @@ https://i.redd.it/p1ph34amprg91.jpg
    
 It's only the truth. Who's even in charge of the algorithm? I bet it's a very small group of people that report to people who have no idea what they're looking at.   
 ------
-https://i.redd.it/fg2udau6mrg91.jpg  
+![](https://i.redd.it/fg2udau6mrg91.jpg?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
 8/9/2022, 2:30:35 PM  
@@ -1320,7 +1319,7 @@ https://v.redd.it/zuiykhc1iqg91
    
 Remember how the Catholics play both sides?   
 ------
-https://i.imgur.com/sTRb3z9.jpg  
+![](https://i.imgur.com/sTRb3z9.jpg?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
 8/8/2022, 5:20:29 PM  
@@ -1389,7 +1388,7 @@ There's also a law that states all within the judicial branch must up hold the c
    
 So, let me get this straight. I found a way to extract a black hole with very little thought. I discovered a method to remove layers of light (think cable when there is a thunderstorm and outlines of different objects appear) but it took NASA 20 years, billions of dollars, and 100s of researchers.   
 ------
-https://i.imgur.com/G8BU2DC.jpg  
+![](https://i.imgur.com/G8BU2DC.jpg?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
 8/8/2022, 12:01:00 PM  
@@ -1485,7 +1484,7 @@ Linked to a medical study which links to a curation of the same studies performe
    
 Had they not been so bigoted with a huge history of Genocide while having zero respect for the rights of women, then I wouldn't have cared. You can find the Statue of Jupiter all over the Vatican; only he isn't called Jupiter there.   
 ------
-https://i.imgur.com/LwW9CPN.jpg  
+![](https://i.imgur.com/LwW9CPN.jpg?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
 8/8/2022, 4:33:40 AM  
@@ -1493,7 +1492,7 @@ https://i.imgur.com/LwW9CPN.jpg
    
 Christ simply means messager/speaker before it was converted into a last name. Last names were usually occupational, house, creed, title, etc. Antichrist in the Bible is just one that speaks against it. We're all antichrists. But... [Me to myself: "stop egging on the nazis."] Also me:   
 ------
-https://i.imgur.com/F3nI2jO.jpg  
+![](https://i.imgur.com/F3nI2jO.jpg?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
 8/8/2022, 2:59:50 AM  
@@ -1517,7 +1516,7 @@ https://pubmed.ncbi.nlm.nih.gov/22847088/
    
 I figured I should post what this sub is exactly and how it got to this point to where it's basically just my posts updating on the Nazi situation. Here's your first lesson. Misinformation was used to gain control of what was true or false in Nazi Germany, Groomer is antisemitic. See comment.   
 ------
-https://i.imgur.com/QMpflQc.jpg  
+![](https://i.imgur.com/QMpflQc.jpg?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
 8/8/2022, 1:23:39 AM  
@@ -1633,7 +1632,7 @@ I then found out that the Vatican is gaining more and more control of Eastern Eu
    
 Aside from hunting Nazis. You should be eating Yogurt, Blueberries, and Flaxseed Oil. I usually do every other day but I've forgotten the last couple of weeks. I had to take a picture because it looks unappetizing.   
 ------
-https://i.imgur.com/GzGPEg4.jpg  
+![](https://i.imgur.com/GzGPEg4.jpg?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
 8/7/2022, 10:12:11 PM  
@@ -1649,7 +1648,7 @@ https://www.reddit.com/r/UncensoredScience/comments/wixzgv/you_know_thinking_abo
    
 And you know that's just the tip of the ice berg. If you've never changed your behavior for centuries, it gets obvious. They attempt a genocide once every hundred years.   
 ------
-https://i.imgur.com/yzbbkS2.jpg  
+![](https://i.imgur.com/yzbbkS2.jpg?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
 8/7/2022, 9:06:14 PM  
@@ -1657,7 +1656,7 @@ https://i.imgur.com/yzbbkS2.jpg
    
 Here is what I think of the people fooled by "misinformation."   
 ------
-https://i.imgur.com/aXrNqBa.jpg  
+![](https://i.imgur.com/aXrNqBa.jpg?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
 8/7/2022, 8:38:23 PM  
@@ -1743,7 +1742,7 @@ https://v.redd.it/az17i3jbxcg91
    
 Not speaking out against terrorists supports terrorism just as much as actually helping them.   
 ------
-https://i.imgur.com/NRrJw9j.jpg  
+![](https://i.imgur.com/NRrJw9j.jpg?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
 8/6/2022, 6:29:19 PM  
@@ -1751,7 +1750,7 @@ https://i.imgur.com/NRrJw9j.jpg
    
 65% to 75% have more loyalty for the Pope and would... well, fuck. What do you think they've been doing? KKK, Nazism, Confederacy, Operation Paperclip, In God We Trust, Tar and Feathering, playing both sides, Slavery, Racism, etc.   
 ------
-https://i.redd.it/hgcybeuyg6g91.jpg  
+![](https://i.redd.it/hgcybeuyg6g91.jpg?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
 8/6/2022, 5:46:38 PM  
@@ -1815,7 +1814,7 @@ Yes. You may live in an area where you know 10 people that are Catholic. Doesn't
    
 I believe in equality. Next, the Vedic Dyaus Patir which later would appear in Buddhism as the trinity Buddha Devas and later Putradeva.   
 ------
-https://i.imgur.com/aVKZ8VN.jpg  
+![](https://i.imgur.com/aVKZ8VN.jpg?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
 8/6/2022, 9:42:54 AM  
@@ -1905,7 +1904,7 @@ The lower it goes, the more the colors begin to blend back together:
    
 But no. That could never happen. No one would ever lie for power. The Catholics have always pioneered new inventions like Torture Devices and the Dark Age.   
 ------
-https://i.imgur.com/IaWsgkj.jpg  
+![](https://i.imgur.com/IaWsgkj.jpg?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
 8/6/2022, 4:11:02 AM  
@@ -1981,7 +1980,7 @@ https://www.reddit.com/r/UncensoredScience/comments/whigd0/daily_directory_300_p
 ------
 I will add new posts to the top here; but when you have moral qualities, then your ego, humility go straight out the window. If I have to ridicule myself and make myself look like an ass in order to expose a threat to this country and its people, then you sure as hell can bet that I will.   
   
-[NEWEST POSTS](https://preview.redd.it/721ze8ly21g91.jpg?width=640&format=pjpg&auto=webp&s=73bb573ba9db250ae5f808d3406eff087d52f9ec)  
+[NEWEST POSTS](![](https://preview.redd.it/721ze8ly21g91.jpg?width=640&format=pjpg&auto=webp&s=73bb573ba9db250ae5f808d3406eff087d52f9ec?raw=true)
   
 &#x200B;  
   
@@ -2329,7 +2328,7 @@ https://www.reddit.com/gallery/whddki
    
 dumb ass Nazis, I've been waiting for them to delete that post. It's been awhile since I started this. But. I'm no longer needed. Hundreds of Marines that cannot help but share cringe have viewed my rant. oh. the anger was real. You can't just be angry though.   
 ------
-https://i.redd.it/q83k66hvhzf91.jpg  
+![](https://i.redd.it/q83k66hvhzf91.jpg?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
 8/5/2022, 6:13:20 PM  
@@ -2403,7 +2402,7 @@ The only people capable of performing torture like the above are NAZIS.
    
 I was going to save this for a bit later, but seeing as to how they keep gaslighting mathematics; I have good news! Calling the Catholic's what they are: TERRORISTS was not considered hate speech, misinformation, harassment, nor bullying. W/ 2k years of terroristic history. #CallThemWhatTheyAre!   
 ------
-https://i.redd.it/dgotb2482wf91.jpg  
+![](https://i.redd.it/dgotb2482wf91.jpg?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
 8/5/2022, 2:58:56 AM  
@@ -2419,7 +2418,7 @@ https://v.redd.it/03lmncy2puf91
    
 Every time it happens. But maybe the first rabbi really did only appear 500 years ago 🙄   
 ------
-https://i.imgur.com/Ydgz1Dy.jpg  
+![](https://i.imgur.com/Ydgz1Dy.jpg?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
 8/4/2022, 11:05:48 PM  
@@ -2571,7 +2570,7 @@ https://medium.com/gitresearch/there-is-a-new-pi-in-town-and-it-is-3-141592616-4
    
 I'm not afraid to share this. I found it extremely funny, and yet I don't agree with it in the slightest. I found it funny because of our past primitive mindset. Women aren't better. Men aren't better. Your character and understanding isn't defined by your race, school, religion, gender, orientation   
 ------
-https://i.redd.it/6yny4umgfef91.gif  
+![](https://i.redd.it/6yny4umgfef91.gif?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
 8/3/2022, 1:49:33 AM  
@@ -2614,7 +2613,7 @@ https://stallman.org/
    
 Do you understand the words that are coming out of your mouth? Church Choirs sing this. There was a video 5 or so years ago of a church singing: "take me to church." It's horrifyingly hilarious and concerning. Oh, Zeus. The song is about intense sex at the start of a relationships that dies.   
 ------
-https://i.imgur.com/ElYge8i.jpg  
+![](https://i.imgur.com/ElYge8i.jpg?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
 8/1/2022, 2:51:37 AM  
@@ -3034,7 +3033,7 @@ I just started a new one based on the old by randomizing the order.
    
 Just discovered my "draft" tweets that failed to send. My. That's a convenient selection, Twitter.   
 ------
-https://i.imgur.com/n02nLJg.jpg  
+![](https://i.imgur.com/n02nLJg.jpg?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
 7/30/2022, 4:59:54 PM  
@@ -3066,7 +3065,7 @@ One of these is deadlier than the other. Make sure you know which one you're get
    
 The The True First Reich was the Roman Empire. And if you say it isn't, then the history still says that the first Reich was the Holy Roman Empire. Hitler was absolutely not an atheist.   
 ------
-https://i.imgur.com/43FQhuV.jpg  
+![](https://i.imgur.com/43FQhuV.jpg?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
 7/25/2022, 11:10:26 AM  
@@ -3208,7 +3207,7 @@ https://v.redd.it/kllntjodepd91
    
 Why was Alan Turing essentially executed by England while a 1000 Nazis were pardoned? Why did NASA and the other Nazi Space Agencies blow up animals when we had thousands of Nazi Warlords to test on? Do I condone conducting research on unwilling humans? No. But the Nazis aren't human.   
 ------
-https://i.imgur.com/MsHVSlT.jpg  
+![](https://i.imgur.com/MsHVSlT.jpg?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
 7/25/2022, 5:37:24 AM  
@@ -3358,7 +3357,7 @@ The largest hate group in the world. The largest terrorist organization in the w
    
 It's so convenient to blame all other Christians. You should wonder why we've only had two Catholic Presidents.   
 ------
-https://i.imgur.com/FNzg3ww.jpg  
+![](https://i.imgur.com/FNzg3ww.jpg?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
 7/24/2022, 6:31:35 PM  
@@ -3366,7 +3365,7 @@ https://i.imgur.com/FNzg3ww.jpg
    
 I did always think it was odd that the statistics for suicide rates of these schools (50,000/100,000) just mysteriously vanished. But hey. That's just the second Reich for you.   
 ------
-https://i.imgur.com/xkl2PWF.jpg  
+![](https://i.imgur.com/xkl2PWF.jpg?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
 7/23/2022, 12:55:56 PM  
@@ -4018,7 +4017,7 @@ Some of these may be shocking. Why? Because would you think, "just don't worry a
    
 When they start calling history a Conspiracy Theory. When MarchAgainstNazis deletes every warning about Falschmeldung (Nazi False Information) then Permabans you and the book you made to detect propaganda and commenter interference. When Catholics deny the Holocaust/NA Holocaust and Crusades:   
 ------
-https://i.imgur.com/tx5fv3j.jpg  
+![](https://i.imgur.com/tx5fv3j.jpg?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
 7/23/2022, 7:14:20 AM  
@@ -4116,7 +4115,7 @@ r/LearnMath  and r/mathmemes said I was causing misinformation for show this:
   
 But they have a problem with the below because it disproves: Aryan Physics. Yeah. Never knew that horse shit either until I started search the web in Deautsch. The English Google and Bing is alarming.   
   
-https://i.redd.it/lop5h2ti7bd91.gif  
+![](https://i.redd.it/lop5h2ti7bd91.gif?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
 7/23/2022, 3:02:48 AM  
@@ -4126,13 +4125,13 @@ When the Traitors Come to Gaslight the Video then press play and realize there i
 ------
 Before and after the Vatican accessing my content with easily by-passable VPN tunneling: Just kidding. You're connecting to my content. You need to understand how the internet works. These asshats thought they were private going through Switzerland. The entire structure of REDDIT was built using this. Anyway, before and after pressing play:  
   
-https://i.redd.it/7a80umunt9d91.gif  
+![](https://i.redd.it/7a80umunt9d91.gif?raw=true)
   
-https://i.redd.it/j7tp7eaqt9d91.gif  
+![](https://i.redd.it/j7tp7eaqt9d91.gif?raw=true)
   
-https://i.redd.it/t4eydtcpt9d91.gif  
+![](https://i.redd.it/t4eydtcpt9d91.gif?raw=true)
   
-https://i.redd.it/smkdzm0pt9d91.gif  
+![](https://i.redd.it/smkdzm0pt9d91.gif?raw=true)
   
 And no. I cannot see directly who you are. I don't need. I only need idk, a few months of data to gather to find the locations that access my content the most. Also. The IP addresses are not directly shared unless it is malicious and spammy.  
   
@@ -4174,7 +4173,7 @@ https://www.youtube.com/watch?v=156k4gKFZUA
    
 This is a NOVEL meme 😂 but really 1000s more where that came from.   
 ------
-https://i.imgur.com/qsHaOW4.jpg  
+![](https://i.imgur.com/qsHaOW4.jpg?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
 7/22/2022, 6:40:16 PM  
@@ -4296,7 +4295,7 @@ http://static1.1.sqspcdn.com/static/f/827989/15116787/1321289366180/50+million+p
    
 There are THREE groups you're not allowed to talk about and their histories are deeply, deeply connected from Three of the Pope Pius, Drexler, to von Braun. They are: Catholics, Nazis, NASA. *COUGH* [[HEY! And I'm not talking about any good people within the church. BUT stop protecting pedophiles.]]   
 ------
-https://i.imgur.com/UK99uFa.jpg  
+![](https://i.imgur.com/UK99uFa.jpg?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
 7/20/2022, 10:51:09 PM  
@@ -4368,7 +4367,7 @@ You'll have to read about my correction to the index laws to understand that x\^
    
 600ms max. Don't waste my time. If I have to open a GD app just to scan it, then I don't want it. Google pushes QR like mad but does nothing. Here's how it should be: point cam at QR, press button, API opens it; PWA perhaps. ABSOLUTELY no "install this" to view. Btn needs to get qr from screen too.   
 ------
-https://i.imgur.com/FZZWjrw.jpg  
+![](https://i.imgur.com/FZZWjrw.jpg?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
 7/19/2022, 9:51:23 PM  
@@ -4384,7 +4383,7 @@ https://www.researchgate.net/publication/361944764_Misinformation_The_Rise_of_Ad
    
 I present to you, the first MEME PAPER since every component within desktop was mysteriously fried despite advance protection. DOI reference: 10.5281.zenodo.6566630   
 ------
-https://i.imgur.com/Cw9YvlM.jpg  
+![](https://i.imgur.com/Cw9YvlM.jpg?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
 7/18/2022, 4:44:51 PM  
@@ -4468,7 +4467,7 @@ Q Anon. Q Gospel. Written by Anonymous.
    
 The post ABSOLUTELY followed their rules. Clickbait? There's no LINK. IT'S NOT a crosspost. There was no prompt to watch the video nor did it imply a prompt for a video. Their behavior is against Reddit TOS. But their treason is will be thrown down in a few. I'm not going to lie. I hate Nazis.   
 ------
-https://i.imgur.com/2yxUZtQ.jpg  
+![](https://i.imgur.com/2yxUZtQ.jpg?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
 7/17/2022, 1:57:56 AM  
@@ -4590,7 +4589,7 @@ I cannot stress this enough: to the people that state: "you can't extract black 
    
 The first unified logo for society and science that I made years ago when I wrote a concept for the Omnicracy (governed by all) which is now the Public Resource License but only pertains to science and research; which is to be for all; essentially, universal open source of all concepts and research.   
 ------
-https://i.redd.it/zk612y1dryb91.jpg  
+![](https://i.redd.it/zk612y1dryb91.jpg?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
 7/16/2022, 11:00:28 AM  
@@ -4606,7 +4605,7 @@ https://www.reddit.com/gallery/w0jvcc
    
 I love the line: "taken from their country for employment."   
 ------
-https://i.imgur.com/8KoNpLe.jpg  
+![](https://i.imgur.com/8KoNpLe.jpg?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
 7/16/2022, 7:36:57 AM  
@@ -4695,7 +4694,7 @@ I lock comments on posts I expect a high amount of abuse on. The not banned but 
   
 Full resolution for mobile here.  
   
-https://preview.redd.it/031xrux12xb91.jpg?width=1740&format=pjpg&auto=webp&s=0a8dde96103ae3dc5155822f658cbb243624f5a7  
+![](https://preview.redd.it/031xrux12xb91.jpg?width=1740&format=pjpg&auto=webp&s=0a8dde96103ae3dc5155822f658cbb243624f5a7?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
 7/16/2022, 6:12:59 AM  
@@ -4749,7 +4748,7 @@ https://doi.org/10.13140/RG.2.2.29823.48802
    
 If I can sum up my message to society.   
 ------
-https://i.imgur.com/1Y0NjqG.jpg  
+![](https://i.imgur.com/1Y0NjqG.jpg?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
 7/15/2022, 8:12:12 PM  
@@ -4861,7 +4860,7 @@ Aryan Physics was one I never knew about. The world can be healed, but only thro
   
 If you want a preview; this would be me to a bot:  
   
-[This is the danger they spew, and it causes insanity and is the cause of insanity in America. They fill comment sections. They bully you back into their line and they're afraid of our legal system; that is because they are within our jurisdiction; our neighbors so to speak.](https://preview.redd.it/wnfbj8wolab91.jpg?width=561&format=pjpg&auto=webp&s=29ff6610ccea0dd6e37dea74cebb2aa8de8adf9c)  
+[This is the danger they spew, and it causes insanity and is the cause of insanity in America. They fill comment sections. They bully you back into their line and they're afraid of our legal system; that is because they are within our jurisdiction; our neighbors so to speak.](![](https://preview.redd.it/wnfbj8wolab91.jpg?width=561&format=pjpg&auto=webp&s=29ff6610ccea0dd6e37dea74cebb2aa8de8adf9c?raw=true)
   
 [But this is what they want you to be:](![](https://preview.redd.it/rhsam3yzlab91.png?width=1245&format=png&auto=webp&s=594b173faaae6b223dac5aa8a2d75c4e58f63560)?raw=true)
   
@@ -4955,7 +4954,7 @@ At long last, I deciphered the Gammadion! (Swazzi) | A remarkably bad post for r
   
 What are you looking at? Ich bin uber cereal. But all of this nonsense just dropped into my lap around the same time.   
   
-[It's weird. I feel as if I bullying. But, I also do not care because these are purely disgusting and despicable humans that tortured an entire race because of a 2000 year old grudge about Zeus. Can we maybe grow up \(ironically on a shit post\) a little and realize what these idiots were mad about? And then be like... oh... my... dyeus...dyaus...zeus....deus...Jupiter...zeus...deus.... gott.... god.](https://preview.redd.it/jk2u11tec9b91.jpg?width=1542&format=pjpg&auto=webp&s=b90314ad94e903920972d477d85b5d145d75f6a8)  
+[It's weird. I feel as if I bullying. But, I also do not care because these are purely disgusting and despicable humans that tortured an entire race because of a 2000 year old grudge about Zeus. Can we maybe grow up \(ironically on a shit post\) a little and realize what these idiots were mad about? And then be like... oh... my... dyeus...dyaus...zeus....deus...Jupiter...zeus...deus.... gott.... god.](![](https://preview.redd.it/jk2u11tec9b91.jpg?width=1542&format=pjpg&auto=webp&s=b90314ad94e903920972d477d85b5d145d75f6a8?raw=true)
   
 But really, I am so disgusted by how obvious everything was an it was all around us this entire time.  
   
@@ -4965,23 +4964,23 @@ If you don't speak German/Deutsche; which I do not anymore. I only remember its 
   
 &#x200B;  
   
-https://preview.redd.it/wrlp09ryb9b91.jpg?width=840&format=pjpg&auto=webp&s=bad11b71ceb356f6ed0e0a484d3d777e29aaa0d6  
+![](https://preview.redd.it/wrlp09ryb9b91.jpg?width=840&format=pjpg&auto=webp&s=bad11b71ceb356f6ed0e0a484d3d777e29aaa0d6?raw=true)
   
 Can we take a moment... This was their leader? I feel some meme material here:  
   
-https://preview.redd.it/a3e0ldi5c9b91.jpg?width=1436&format=pjpg&auto=webp&s=0689a03f30bed7417a10170f7a4617bba03764ea  
+![](https://preview.redd.it/a3e0ldi5c9b91.jpg?width=1436&format=pjpg&auto=webp&s=0689a03f30bed7417a10170f7a4617bba03764ea?raw=true)
   
-https://preview.redd.it/f2monll8c9b91.jpg?width=640&format=pjpg&auto=webp&s=43f4a7e5725024582a66ed488814c8a16f60131c  
+![](https://preview.redd.it/f2monll8c9b91.jpg?width=640&format=pjpg&auto=webp&s=43f4a7e5725024582a66ed488814c8a16f60131c?raw=true)
   
-https://preview.redd.it/gmcye4w9c9b91.jpg?width=1160&format=pjpg&auto=webp&s=912467567505c8811ead0ee45248d9e458ef941d  
+![](https://preview.redd.it/gmcye4w9c9b91.jpg?width=1160&format=pjpg&auto=webp&s=912467567505c8811ead0ee45248d9e458ef941d?raw=true)
   
 And his followers were just like:  
   
 ![](https://preview.redd.it/7mx3qdpte9b91.png?width=3068&format=png&auto=webp&s=255194197009dd3ad88c989734cf12aac0232423?raw=true)
   
-https://preview.redd.it/idfvgdfac9b91.jpg?width=1600&format=pjpg&auto=webp&s=ec18ec5b90219a70cd01539992b7f54e3cb1745e  
+![](https://preview.redd.it/idfvgdfac9b91.jpg?width=1600&format=pjpg&auto=webp&s=ec18ec5b90219a70cd01539992b7f54e3cb1745e?raw=true)
   
-https://preview.redd.it/q9yevf3cc9b91.jpg?width=615&format=pjpg&auto=webp&s=deea1c13d76c6365cee1b24d03143460f368d0e5  
+![](https://preview.redd.it/q9yevf3cc9b91.jpg?width=615&format=pjpg&auto=webp&s=deea1c13d76c6365cee1b24d03143460f368d0e5?raw=true)
   
 *Processing img 5kcqcvsga9b91...*  
   
@@ -4999,7 +4998,7 @@ But back to the decipher: here are the Swaservants once again:
   
 But clearly they had needs.  
   
-https://i.redd.it/i6a2nxz0a9b91.gif  
+![](https://i.redd.it/i6a2nxz0a9b91.gif?raw=true)
   
 And so a little bit of this:  
   
@@ -5083,7 +5082,7 @@ And Facebook does it again. Lol.
    
 Everyone, "I'll just ignore that."   
 ------
-https://i.imgur.com/b14esKg.jpg  
+![](https://i.imgur.com/b14esKg.jpg?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
 7/7/2022, 6:32:54 PM  
@@ -5281,7 +5280,7 @@ RULE 1: NOTHING IN MATHEMATICS IS ATTACHED
   
 ![](https://preview.redd.it/ji0dykoxo5a91.png?width=855&format=png&auto=webp&s=2ec02e552326dbb497bf5bb72b0889736143a4c5?raw=true)
   
-[Him.](https://preview.redd.it/qe34da1zn5a91.jpg?width=290&format=pjpg&auto=webp&s=cd300dcef6594dcbb3315f2bb542575ac22537b3)  
+[Him.](![](https://preview.redd.it/qe34da1zn5a91.jpg?width=290&format=pjpg&auto=webp&s=cd300dcef6594dcbb3315f2bb542575ac22537b3?raw=true)
   
 Here is how Isaac Newton calculated the Mathematics on which the laws of arithmetic are based:   
   
@@ -5349,7 +5348,7 @@ And now, why Nazi / Aryan Physics and Mathematics are wrong, and at this point; 
   
 &#x200B;  
   
-https://i.redd.it/wqqp898gr5a91.gif  
+![](https://i.redd.it/wqqp898gr5a91.gif?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
 7/7/2022, 9:17:44 AM  
@@ -5383,7 +5382,7 @@ Current Faith in Humanity (ongoing) | Data
 ------
 &#x200B;  
   
-https://i.redd.it/zkprax6c7u991.gif  
+![](https://i.redd.it/zkprax6c7u991.gif?raw=true)
   
 And guess who found 86 connections between the Nazis and the Catholics from symbolism, methods of extermination, mindset, tactics, methods of manipulation, to just... yikes. When are we going to stop pretending that they aren't the Roman Empire in disguise and are one of the most terroristic organizations this world has ever seen? I will post the full list eventually, but I need my sources together for this one; but I will give you 25 that should be somewhat common knowledge. The others are more damning, but I want to have quite a lot to back it up with because I am done with both of these groups.  
   
@@ -5429,7 +5428,7 @@ Here are a few that mind sound familiar in our society today:
    
 Keep an eye on this. I bet a bot will "remove" it... Twelve years ago 110k-individual-leaders-accused and nothing happened, and all I have to say to the governments around the world:   
 ------
-https://i.redd.it/w477bug3nt991.gif  
+![](https://i.redd.it/w477bug3nt991.gif?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
 7/5/2022, 11:15:15 AM  
@@ -5437,7 +5436,7 @@ https://i.redd.it/w477bug3nt991.gif
    
 My illustration of how I once thought the universe to recycle/restart, however, I've completely abandoned this idea for: we don't know and will never know/be completely sure of, so I'm not going to continue wasting my life on this useless problem that doesn't help humanity.   
 ------
-https://i.redd.it/trn9hslmxr991.gif  
+![](https://i.redd.it/trn9hslmxr991.gif?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
 7/5/2022, 12:02:53 AM  
@@ -5453,7 +5452,7 @@ https://medium.com/gitresearch/aryan-physics-6e4023a8898d?sk=e39b57db99778b458b3
    
 The absolute irony of this Anagram. It's a good thing numbers and anagrams mean nothing and that endless possibilities are bound to happen especially given a name filled with the most common letters.   
 ------
-https://i.imgur.com/YmYGd7h.jpg  
+![](https://i.imgur.com/YmYGd7h.jpg?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
 7/4/2022, 3:43:31 PM  
@@ -5461,7 +5460,7 @@ https://i.imgur.com/YmYGd7h.jpg
    
 It was only made popular because it opposed "Jewish Physics" aka Modern Physics.   
 ------
-https://i.imgur.com/w7owGHB.jpg  
+![](https://i.imgur.com/w7owGHB.jpg?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
 7/4/2022, 2:53:27 PM  
@@ -5493,7 +5492,7 @@ Have you ever driven yourself mad to the point that you just try the craziest th
    
 Imagine how hard it would be to spy on bots.   
 ------
-https://i.imgur.com/FMabD8Z.jpg  
+![](https://i.imgur.com/FMabD8Z.jpg?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
 7/2/2022, 7:12:58 AM  
@@ -5580,11 +5579,11 @@ My favorite one today:
   
 Also if someone could help, the python regex does not work for c.search, and I know there is something weird about it, but I am not all too familiar with python.  
   
-https://i.redd.it/bjltnrxnst891.gif  
+![](https://i.redd.it/bjltnrxnst891.gif?raw=true)
   
 An interesting thing happens when you search for '666'  
   
-[You'll find every single bot name pattern in the book. The Church, Nazis, and NASA have always worked on your superstition.](https://i.redd.it/c5j9zv8lut891.gif)  
+[You'll find every single bot name pattern in the book. The Church, Nazis, and NASA have always worked on your superstition.](![](https://i.redd.it/c5j9zv8lut891.gif?raw=true)
   
 You get tweets about Nazis, Catholics, to Repent, George Soros being a Nazi (he's Jewish, and that rumor has gone around ever since he started his foundation for Open Societies), NASA, CERN, and Jesus.  
   
@@ -5802,7 +5801,7 @@ https://v.redd.it/8aojb812p9891
    
 Most that stay within education the longest: become absolute morons. Calculators. Incapable of thought aside from what their textbooks say. They CANNOT admit being wrong, they cannot admit that they do mathematics BACKWARDS. So. I am sure they can solve it. NASA is competent. Right?   
 ------
-https://i.redd.it/mbgudrrsi9891.gif  
+![](https://i.redd.it/mbgudrrsi9891.gif?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
 6/27/2022, 8:03:51 PM  
@@ -6132,7 +6131,7 @@ Photo Electromagnetic Image Analysis of a few album previews.
   
 [Shadows](![](https://preview.redd.it/4zeqk9ucf0891.png?width=640&format=png&auto=webp&s=872162a3bfa8121e6ba5d403c8544f122ef75968)?raw=true)
   
-https://preview.redd.it/tzuoafudf0891.jpg?width=640&format=pjpg&auto=webp&s=da2626c2b2797eb8c216ea1b47362249af5e4762  
+![](https://preview.redd.it/tzuoafudf0891.jpg?width=640&format=pjpg&auto=webp&s=da2626c2b2797eb8c216ea1b47362249af5e4762?raw=true)
   
 *Processing img e0xxndawf0891...*  
   
@@ -6221,7 +6220,7 @@ Tell me the odds of me getting you this evidence. (I will be updating as I place
    
 I made this GIF after it visually invaded my mind from a 10-15 year old memory with a 15-20 year old song. Then I put other songs to it. I've been listening to songs all day with this playing in the background and it just never disappoints. Blank Space by Taylor Swift is my all time favorite w/ this   
 ------
-https://i.redd.it/2egzrgtqih791.gif  
+![](https://i.redd.it/2egzrgtqih791.gif?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
 6/23/2022, 9:57:55 PM  
@@ -6271,7 +6270,7 @@ Prior incorrect sentiment: molecules rub against each other to produce heat.
   
 Example:  
   
-https://i.redd.it/85ed9xzucb791.gif  
+![](https://i.redd.it/85ed9xzucb791.gif?raw=true)
   
 **Theoretical:** The Center of the Sun is Neither Hot nor Cold (a state of no matter with no temperature)    
 Contributed by: Andrew Lehti  
@@ -6509,7 +6508,7 @@ https://medium.com/gitresearch/the-first-reich-the-origin-of-every-god-and-the-e
    
 Observe Belief Interference: Read the Article on Negative Reinforcement: They will write the worst proofs. These people that tell me I do not provide enough proof have used this proof many times to refute the below: (-2^1)^2 = -1*2^2 = (-1*2)^2... Still..uh.. didn't eliminate your Parentheses......   
 ------
-https://i.redd.it/esei2v4tjz691.gif  
+![](https://i.redd.it/esei2v4tjz691.gif?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
 6/21/2022, 6:31:12 AM  
@@ -6555,11 +6554,11 @@ This \[that I use\] ruins their entire **ability to discredit by association.** 
   
 # THE PUBLIC RESOURCE LICENSE:  
   
-https://preview.redd.it/4deh5xpt3y691.jpg?width=900&format=pjpg&auto=webp&s=ead5020cc3fa77b119b20bd6caaaf0e95ee3c5de  
+![](https://preview.redd.it/4deh5xpt3y691.jpg?width=900&format=pjpg&auto=webp&s=ead5020cc3fa77b119b20bd6caaaf0e95ee3c5de?raw=true)
   
 # The Gist of the Public Resource License r/PublicResource   
   
-https://preview.redd.it/56dymgrv1y691.jpg?width=745&format=pjpg&auto=webp&s=b07bf203c76af33e7f15b33e700e871c043080a8  
+![](https://preview.redd.it/56dymgrv1y691.jpg?width=745&format=pjpg&auto=webp&s=b07bf203c76af33e7f15b33e700e871c043080a8?raw=true)
   
 # HOW POSTS ARE DOWN-VOTED TO HIDE; COMMENTED WITH MANIPULATION TO DISCREDIT, OR DELETED IF THEY CANNOT OVERCOME THE PRIOR TWO.  
   
@@ -7498,7 +7497,7 @@ How good are they manipulating you? They (the Nazis) convinced to you that this 
   
 &#x200B;  
   
-[All from Apollo 11](https://i.redd.it/0zf67kez8w591.gif)  
+[All from Apollo 11](![](https://i.redd.it/0zf67kez8w591.gif?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
 6/15/2022, 7:16:13 PM  
@@ -7746,7 +7745,7 @@ https://gitresearch.org/the-speed-of-light-is-zero-meters-per-second-979da182280
    
 I did have the first vaccine though. But since Americans are most deficient in Vitamin D and Niacin (B3) then the logical thing would be to take it. I had a slight runny nose.   
 ------
-https://i.redd.it/hujzrhhhrw491.jpg  
+![](https://i.redd.it/hujzrhhhrw491.jpg?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
 6/10/2022, 6:48:07 AM  
@@ -7754,7 +7753,7 @@ https://i.redd.it/hujzrhhhrw491.jpg
    
 This is an actual thing. Every "scientific" site praised the breakthrough. I'm sure many others were asking wtf is going on with the editors.   
 ------
-https://i.redd.it/81j6kwnw7s491.jpg  
+![](https://i.redd.it/81j6kwnw7s491.jpg?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
 6/10/2022, 6:31:19 AM  
@@ -7960,7 +7959,7 @@ And now you will see things you never have seen before.
   
 [The Moon](![](https://preview.redd.it/l0ysed4gni491.png?width=1581&format=png&auto=webp&s=0202fa87fc3cc65e7622b51b7cd0b5f754faceb7)?raw=true)
   
-[The Light bulb within the Moon Landing Photos.](https://preview.redd.it/h8wysifkni491.jpg?width=1600&format=pjpg&auto=webp&s=99c27b10ecf1cce8a8ff4702f209fb27531c93fe)  
+[The Light bulb within the Moon Landing Photos.](![](https://preview.redd.it/h8wysifkni491.jpg?width=1600&format=pjpg&auto=webp&s=99c27b10ecf1cce8a8ff4702f209fb27531c93fe?raw=true)
   
 Some notes: the higher the resolution, the better. Low resolution images are harder to understand.  
   
@@ -7992,7 +7991,7 @@ You'll find many things to discover here:
   
 Do you know why it is hard to land on the moon? It has to do with our moon being interlocked with the Earth  
   
-[\[revolutions reduced for understanding\]](https://i.redd.it/3qiuvlddqi491.gif)  
+[\[revolutions reduced for understanding\]](![](https://i.redd.it/3qiuvlddqi491.gif?raw=true)
   
 More here: [https://gitresearch.org/the-cause-of-ice-ages-and-climate-change-854f9bddcab?sk=f2c0b44ba29f79977f026ae236c406d5](https://medium.com/gitresearch/the-cause-of-ice-ages-and-climate-change-854f9bddcab?sk=f2c0b44ba29f79977f026ae236c406d5)  
   
@@ -8120,7 +8119,7 @@ https://medium.com/gitresearch/do-you-actually-want-to-solve-the-climate-crisis-
    
 Electromagnetic Waves and Birds | A One Page Excerpt from The Framework of the Universe which CERN Deemed as "Spam." Imagine that.   
 ------
-https://i.redd.it/tsajwpavjg491.gif  
+![](https://i.redd.it/tsajwpavjg491.gif?raw=true)
 /r/UncensoredScience  
 /u/Alehti  
 6/8/2022, 3:32:00 PM  
@@ -8781,7 +8780,8 @@ LANGUAGE,  SYNTAX, CODE, OR ANY FORM OF COMMUNICATION.
   
 ----------------------------------------------------------------
  
-    [END]  ```
+    [END]
+```
 /r/UncensoredScience  
 /u/Alehti  
 6/5/2022, 6:34:32 AM  
